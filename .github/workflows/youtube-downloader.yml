@@ -64,6 +64,14 @@ jobs:
         with:
           persist-credentials: true
 
+      # ── Create temporary working directory ─────────────
+      - name: '📁 Create temp working directory'
+        id: tempdir
+        run: |
+          TEMP_DIR=$(mktemp -d -t yt-dlp-XXXXXX)
+          echo "TEMP_DIR=$TEMP_DIR" >> $GITHUB_OUTPUT
+          echo "✅ Created temp dir: $TEMP_DIR"
+
       # ── Cookies (secret only) ─────────────────────────────
       - name: '🔐 Prepare cookies'
         run: |
@@ -160,7 +168,7 @@ jobs:
         run: |
           set -e
           ENTRIES_JSON='${{ steps.parse.outputs.ENTRIES_JSON }}'
-          OUTPUT_FOLDER="youtube"
+          OUTPUT_FOLDER="${{ steps.tempdir.outputs.TEMP_DIR }}"
           mkdir -p "$OUTPUT_FOLDER"
 
           # Global defaults from the workflow inputs
@@ -296,7 +304,7 @@ jobs:
           FAILED_ENTRIES='${{ steps.primary_download.outputs.FAILED_ENTRIES_JSON }}'
           count=$(echo "$FAILED_ENTRIES" | jq length)
           echo "🔄 Attempting fallback for $count failed entries..."
-          OUTPUT_FOLDER="youtube"
+          OUTPUT_FOLDER="${{ steps.tempdir.outputs.TEMP_DIR }}"
 
           # Helper for filename suffix
           build_suffix() {
@@ -544,11 +552,11 @@ jobs:
           done
           echo "✅ Fallback phase complete."
 
-      # ── Remux all videos to MP4 ──────────────────────────
+      # ── Remux all videos to MP4 (inside TEMP_DIR) ─────────
       - name: '🔧 Remux videos to MP4'
         run: |
-          OUTPUT_FOLDER="youtube"
-          echo "🔧 Remuxing video files to MP4 container..."
+          OUTPUT_FOLDER="${{ steps.tempdir.outputs.TEMP_DIR }}"
+          echo "🔧 Remuxing video files to MP4 container inside temp..."
           for f in "$OUTPUT_FOLDER"/*; do
             [ -f "$f" ] || continue
             ext="${f##*.}"
@@ -556,24 +564,39 @@ jobs:
               echo "✅ Already MP4: $(basename "$f")"
               continue
             fi
-            if [ "$ext" = "m4a" ] || [ "$ext" = "mp3" ] || [ "$ext" = "ogg" ] || [ "$ext" = "opus" ]; then
+            if [[ "$ext" =~ ^(m4a|mp3|ogg|opus)$ ]]; then
               echo "🎵 Skipping audio file: $(basename "$f")"
               continue
             fi
             echo "🔧 Remuxing: $(basename "$f") → mp4"
-            OUTPUT_FILE="${f%.*}.mp4"
-            ffmpeg -y -v quiet -i "$f" -c copy "$OUTPUT_FILE" 2>/dev/null
-            if [ $? -eq 0 ] && [ -s "$OUTPUT_FILE" ]; then
+            output_file="${f%.*}.mp4"
+            ffmpeg -y -v quiet -i "$f" -c copy "$output_file" 2>/dev/null
+            if [ $? -eq 0 ] && [ -s "$output_file" ]; then
               rm "$f"
-              echo "✅ Remuxed: $(basename "$OUTPUT_FILE")"
+              echo "✅ Remuxed: $(basename "$output_file")"
             else
               echo "⚠️ Remux failed for $(basename "$f"), keeping original"
-              rm -f "$OUTPUT_FILE"
+              rm -f "$output_file"
             fi
           done
           echo "✅ Remux phase complete."
-          echo "📁 Contents of $OUTPUT_FOLDER:"
+          echo "📁 Contents of temp dir:"
           ls -lah "$OUTPUT_FOLDER"
+
+      # ── Move finished files to persistent youtube folder (merge) ──
+      - name: '📂 Move finished files to youtube folder'
+        run: |
+          TEMP_DIR="${{ steps.tempdir.outputs.TEMP_DIR }}"
+          FINAL_DIR="youtube"
+          mkdir -p "$FINAL_DIR"
+          # Move all MP4 files
+          mv "$TEMP_DIR"/*.mp4 "$FINAL_DIR"/ 2>/dev/null || true
+          # Move audio files (if any)
+          mv "$TEMP_DIR"/*.m4a "$FINAL_DIR"/ 2>/dev/null || true
+          mv "$TEMP_DIR"/*.mp3 "$FINAL_DIR"/ 2>/dev/null || true
+          echo "✅ Files moved to $FINAL_DIR (merged with existing content)"
+          echo "📁 Final contents of $FINAL_DIR:"
+          ls -lah "$FINAL_DIR"
 
       # ── Zip all files (supports per‑file and bundled mode) ─
       - name: '📦 Zip all files'
@@ -722,9 +745,10 @@ jobs:
             --target "${{ github.ref_name }}"
           echo "Release '$TAG' created with assets."
 
-      # ── Cleanup ───────────────────────────────────────────
-      - name: '🧹 Cleanup'
+      # ── Cleanup temporary directory ───────────────────────
+      - name: '🧹 Cleanup temp directory'
         if: always()
         run: |
-          rm -rf .download_info youtube-cookies.txt 2>/dev/null || true
+          rm -rf "${{ steps.tempdir.outputs.TEMP_DIR }}" 2>/dev/null || true
+          rm -f youtube-cookies.txt 2>/dev/null || true
           echo "✅ Cleanup done."
