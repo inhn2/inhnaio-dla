@@ -7,6 +7,326 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 22:43
+---
+
+## WithYashar — post 11585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : یک پوکرباز خوب دستش را «شو» نمی‌کند، بلکه معمولاً فقط وقتی کارت‌ها را نشان می‌دهد که دست قوی را نشان ‌دهد تا تصویر «بازیکن صادق» بسازد و بعداً راحت‌تر بلوف بزند
+@withyashar
+</div>
+
+## WithYashar — post 11584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند در شمال تهران شروع شد
+
+منابع نزدیک به سپاه: انهدام ریزپرنده در شمال تهران
+@withyashar
+</div>
+
+## WithYashar — post 11583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله فردا کنسل شد
+
+ترامپ در تروث : از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس‌ امارات متحده عربی، محمد بن زاید آل نهیان، از من درخواست شده است که حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، فعلاً متوقف کنم؛ زیرا اکنون مذاکرات جدی در جریان است و آن‌ها، به عنوان رهبران بزرگ و متحدان ما، معتقدند توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین همه کشورهای خاورمیانه و فراتر از آن، بسیار قابل قبول خواهد بود.
+
+این توافق، مهم‌تر از همه، شامل این خواهد بود که ایران هیچ سلاح هسته‌ای نداشته باشد.
+
+بر پایه احترامم به رهبران یادشده، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک نیروهای مسلح، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده به ایران را فردا انجام ندهند. اما همزمان به آن‌ها دستور داده‌ام که در صورتی که توافقی قابل قبول حاصل نشود، آماده باشند تا در هر لحظه حمله‌ای کامل و گسترده علیه ایران را آغاز کنند.
+
+از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+@withyashar
+</div>
+
+## mwarmonitor — post 9272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نفت از ۱۱۲ رد شد دوباره داستان تکراری
+</div>
+
+## mwarmonitor — post 9271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨 ترامپ در شبکه اجتماعی Truth Social:
+
+از من توسط امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس‌جمهور امارات متحده عربی، محمد بن زاید آل نهیان، درخواست شده است که حمله نظامی برنامه‌ریزی‌شده ما به جمهوری اسلامی ایران را که قرار بود فردا انجام شود متوقف کنم، زیرا در حال حاضر مذاکرات جدی در جریان است و به نظر آن‌ها، به عنوان رهبران بزرگ و متحدان، یک توافق حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین تمام کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود.
+
+این توافق به‌طور مهم شامل «عدم وجود سلاح هسته‌ای برای ایران» خواهد بود.
+
+با توجه به احترام من به رهبران فوق‌الذکر، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک نیروهای مسلح، ژنرال دانیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده فردا به ایران انجام نشود.
+
+اما همچنین به آن‌ها دستور داده‌ام که در صورت عدم دستیابی به یک توافق قابل قبول، آماده باشند در هر لحظه عملیات نظامی گسترده و تمام‌عیار علیه ایران را آغاز کنند.
+
+از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341892
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341892_1779131620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: U.S. Attorney Jeanine Pirro issues a blistering warning to juvenile criminals and their parents amid a rising wave of retail theft and neighborhood destruction in DC:
+
+“A social media click is not worth a criminal record, and we will make sure that you have a criminal record.”
+
+“And if you think that being a teen gives you a pass to terrorize businesses and neighborhoods, you're about to find out otherwise.”
+
+“We will arrest you, and where we can, we will prosecute you aggressively — and we will prosecute your parents.”
+</div>
+
+## DEJradio — post 4710
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4710_1779131622.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🚨 دونالد ترامپ رئیس جمهوری ایالات متحده در پیامی در شبکه اجتماعی تروث سوشیال نوشت:
+
+امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس‌ جمهوری امارات متحده عربی، محمد بن زاید آل نهیان، از من درخواست کرده‌اند حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، متوقف کنم؛ زیرا اکنون مذاکراتی جدی در جریان است و آنان، به‌عنوان رهبران بزرگ و متحدان ما، معتقدند توافقی حاصل خواهد شد که برای ایالات متحده آمریکا، تمامی کشورهای خاورمیانه و فراتر از آن، بسیار قابل قبول خواهد بود. این توافق، مهم‌تر از همه، شامل این خواهد بود که ایران هیچ سلاح هسته‌ای نداشته باشد.
+بر پایه احترامی که برای رهبران یادشده قائلم، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک نیروهای مسلح، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده علیه ایران در فردا انجام نشود. اما در عین حال، به آنان دستور داده‌ام که در صورت نرسیدن به توافقی قابل قبول، برای اجرای یک حمله کامل و گسترده علیه ایران، در هر لحظه آماده باشند.
+
+از توجه شما به این موضوع سپاسگزارم.
+رئیس‌جمهوری، دونالد جی. ترامپ
+
+#ترامپ #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## VahidOnline — post 75545
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75545_1779131623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ ترامپ: حمله فردا را به تعویق انداختم
+
+پست ترامپ ترجمه ماشین:
+از سوی امیر قطر تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی محمد بن سلمان آل سعود و رئیس امارات متحده عربی محمد بن زاید آل نهیان، از من خواسته شده است حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، به تعویق بیندازم؛
+زیرا مذاکرات جدی اکنون در جریان است
+و
+به باور آن‌ها، به‌عنوان رهبران بزرگ و متحدان ما، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود.
+
+این توافق، نکته مهمی را در بر خواهد داشت: هیچ سلاح هسته‌ای برای ایران!
+
+بر اساس احترامی که برای رهبران نام‌برده قائلم، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک ارتش، ژنرال دانیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده فردا به ایران را انجام ندهیم؛ اما همچنین به آن‌ها دستور داده‌ام که آماده باشند، در صورت حاصل نشدن یک توافق قابل قبول، در یک لحظه و بدون درنگ، حمله‌ای کامل و گسترده علیه ایران را آغاز کنند.
+
+از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87467
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87467_1779131624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بازی تکراری و پر از فریب ترامپ
+
+هر زمان قیمت نفت از ۱۰۰ دلار عبور میکند٫ میگوید توافق نزدیک است
+امشب نیز قیمت نفت ۱۱۲ دلار بود
+
+دوباره با حربه ی مذاکره قیمت را پایین می آورد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:
+
+امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس جمهور امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته‌اند که حمله نظامی برنامه‌ریزی شده‌مان به جمهوری اسلامی ایران را که قرار بود فردا انجام شود، به تعویق بیندازم، چرا که مذاکرات جدی اکنون در حال انجام است و به نظر آنها، به عنوان رهبران و متحدان بزرگ، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود. این توافق، مهم‌تر از همه، شامل عدم دستیابی ایران به سلاح هسته‌ای خواهد بود! با توجه به احترامی که برای رهبران ذکر شده در بالا قائلم، به وزیر جنگ، پیت هگزت، رئیس ستاد مشترک ارتش، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که فردا حمله برنامه‌ریزی شده به ایران را انجام نخواهیم داد، اما به آنها دستور داده‌ام که آماده باشند تا در صورت عدم دستیابی به توافق قابل قبول، فوراً حمله‌ای کامل و گسترده به ایران انجام دهند. از توجه شما به این موضوع متشکرم! رئیس جمهور دونالد جی. ترامپ
+https://t.me/kianmeli1
+</div>
+
+## Shin_Persian — post 6072
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6072_1779131625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Mon, 18 May 2026 19:06:13 UTC President Trump @POTUS: "I have been asked by the Emir of Qatar, Tamim bin Hamad Al Thani, the Crown Prince of Saudi Arabia, Mohammed bin Salman Al Saud, and the President of the United Arab Emirates, Mohamed…
+</div>
+
+## Shin_Persian — post 6071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 18 May 2026 19:06:13 UTC
+
+President Trump @POTUS:
+"I have been asked by the Emir of Qatar, Tamim bin Hamad Al Thani, the Crown Prince of Saudi Arabia, Mohammed bin Salman Al Saud, and the President of the United Arab Emirates, Mohamed bin Zayed Al Nahyan, to hold off on our planned Military attack of the Islamic Republic of Iran, which was scheduled for tomorrow, in that serious negotiations are now taking place, and that, in their opinion, as Great Leaders and Allies, a Deal will be made, which will be very acceptable to the United States of America, as well as all Countries in the Middle East, and beyond. This Deal will include, importantly, NO NUCLEAR WEAPONS FOR IRAN! Based on my respect for the above mentioned Leaders, I have instructed Secretary of War, Pete Hegseth, The Chairman of The Joint Chiefs of Staff, General Daniel Caine, and The United States Military, that we will NOT be doing the scheduled attack of Iran tomorrow, but have further instructed them to be prepared to go forward with a full, large scale assault of Iran, on a moment’s notice, in the event that an acceptable Deal is not reached. Thank you for your attention to this matter! President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«از سوی شیخ تمیم بن حمد آل ثانی امیر قطر، محمد بن سلمان آل سعود ولیعهد عربستان سعودی و محمد بن زاید آل نهیان رئیس امارات متحده عربی از من خواسته شده است که از حمله نظامی برنامه‌ریزی شده‌مان به جمهوری اسلامی ایران که برای فردا برنامه‌ریزی شده بود، صرف‌نظر کنم؛ چرا که مذاکرات جدی در حال انجام است و به عقیده آن‌ها، به عنوان رهبرانی بزرگ و متحد، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین تمامی کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود. این توافق، به طور مهمی، شامل عدم دستیابی ایران به سلاح هسته‌ای خواهد بود! بر اساس احترامی که برای رهبران مذکور قائل هستم، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک ارتش، ژنرال دنیل کین و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی شده فردا به ایران را انجام ندهند، اما علاوه بر آن به آن‌ها دستور داده‌ام تا آماده باشند که در صورت عدم دستیابی به توافقی قابل قبول، در لحظه، یک حمله تمام‌عیار و گسترده علیه ایران را به پیش ببرند. از توجه شما به این موضوع سپاسگزارم! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6070
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6070_1779131625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Mon, 18 May 2026 19:06:09 UTC President Trump @POTUS: "I have been asked by the Emir of Qatar, Tamim bin Hamad Al Thani, the Crown Prince of Saudi Arabia, Mohammed bin Salman Al Saud, and the President of the United Arab Emirates, Mohamed…
+</div>
+
+## Shin_Persian — post 6069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 18 May 2026 19:06:09 UTC
+
+President Trump @POTUS:
+"I have been asked by the Emir of Qatar, Tamim bin Hamad Al Thani, the Crown Prince of Saudi Arabia, Mohammed bin Salman Al Saud, and the President of the United Arab Emirates, Mohamed bin Zayed Al Nahyan, to hold off on our planned Military attack of the Islamic Republic of Iran, which was scheduled for tomorrow, in that serious negotiations are now taking place, and that, in their opinion, as Great Leaders and Allies, a Deal will be made, which will be very acceptable to the United States of America, as well as all Countries in the Middle East, and beyond. This Deal will include, importantly, NO NUCLEAR WEAPONS FOR IRAN! Based on my respect for the above mentioned Leaders, I have instructed Secretary of War, Pete Hegseth, The Chairman of The Joint Chiefs of Staff, General Daniel Caine, and The United States Military, that we will NOT be doing the scheduled attack of Iran tomorrow, but have further instructed them to be prepared to go forward with a full, large scale assault of Iran, on a moment’s notice, in the event that an acceptable Deal is not reached. Thank you for your attention to this matter! President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+
+«از من توسط تمیم بن حمد آل ثانی، امیر قطر، محمد بن سلمان آل سعود، ولیعهد عربستان سعودی، و محمد بن زاید آل نهیان، رئیس امارات متحده عربی، درخواست شده است تا حمله نظامی برنامه‌ریزی‌شده‌مان علیه جمهوری اسلامی ایران را که برای فردا برنامه‌ریزی شده بود، متوقف کنم؛ چرا که اکنون مذاکرات جدی در حال انجام است و به عقیده آن‌ها، به عنوان رهبرانی بزرگ و متحد، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین تمامی کشورهای خاورمیانه و فراتر از آن، بسیار قابل قبول خواهد بود. این توافق، به طور مهمی، شامل عدم دستیابی ایران به سلاح هسته‌ای خواهد بود! بر اساس احترامی که برای رهبران مذکور قائل هستم، به پیت هگست، وزیر جنگ، ژنرال دنیل کین، رئیس ستاد مشترک ارتش، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده فردا به ایران را انجام نخواهیم داد، اما همچنین به آن‌ها دستور داده‌ام که آماده باشند تا در صورت عدم دستیابی به یک توافق قابل قبول، در لحظه، یک حمله تمام‌عیار و گسترده علیه ایران را به پیش ببرند. از توجه شما به این موضوع سپاسگزارم! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14442
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14442_1779131626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## Persian_Trend_Official — post 14441
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14441_1779131627.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## Persian_Trend_Official — post 14440
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14440_1779131628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات جدی اکنون در حال انجام است و آن‌ها معتقدند به‌عنوان رهبران و متحدان بزرگ، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا، همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود. این توافق، مهم‌تر از همه، شامل «عدم دستیابی ایران به سلاح هسته‌ای» خواهد بود.
+
+💢بر اساس احترامی که برای رهبران یادشده قائلم، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک ارتش، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده علیه ایران را فردا انجام ندهند، اما در عین حال به آن‌ها دستور داده‌ام در صورتی که توافق قابل قبولی حاصل نشود، آماده اجرای یک حمله کامل و گسترده علیه ایران در کوتاه‌ترین زمان ممکن باشند.
+
+▪️از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در تروث سوشال اعلام کرد که حمله برنامه‌ریزی‌شده به ایران که برای فردا در نظر گرفته شده بود را لغو کرده زیرا «مذاکرات جدی» در حال انجام است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در تروث سوشال اعلام کرد که حمله برنامه‌ریزی‌شده به ایران که برای فردا در نظر گرفته شده بود را لغو کرده زیرا «مذاکرات جدی» در حال انجام است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Hranews — post 113021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از تجمع اعتراضی کارگران پتروشیمی پتروناد در بندرامام
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– روز جاری، گروهی از کارگران شرکت پتروشیمی پتروناد، در اعتراض به اخراج ۲۰۰ کارگر بومی این شرکت برای چهارمین روز متوالی در مقابل ساختمان فرمانداری بندرامام دست به #تجمع زدند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 120945
+
+<div align="center">
+  <a href="telegram/content/alonews_120945_1779131629.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ترامپ: حمله به ایران را که قرار بود فردا انجام دهم به تعویق انداختم 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120944
+
+<div align="center">
+  <a href="telegram/content/alonews_120944_1779131629.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ترامپ: حمله به ایران را که قرار بود فردا انجام دهم به تعویق انداختم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120943
+
+<div align="center">
+  <a href="telegram/content/alonews_120943_1779131629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خضریان، عضو کمیسیون امنیت ملی مجلس: خیلی از مسئولان ارشد نظام معتقد دارند که باید در مقابل اقدام محاصره نظامی آمریکا، پاسخ نظامی به اسرائیل و آمریکا بدهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 22:34
 ---
 
