@@ -7,6 +7,220 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 23:03
+---
+
+## FoxNewsTwitter — post 341961
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341961_1779219207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+An Amazon driver saved a woman’s life after spotting a brutal attack unfolding in her house and calling police.
+
+Authorities say 72-year-old James Alan Johnson is being charged with attempted murder and assault with a deadly weapon after allegedly attacking his wife with a hammer inside their home.
+
+According to investigators, the victim told police Johnson struck her in the head twice before she managed to fight him off by kicking him in the crotch while he was on top of her.
+
+Police say the assault was witnessed by an Amazon driver outside the home, who immediately called 911 for help.
+</div>
+
+## FoxNewsTwitter — post 341960
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341960_1779219208.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A California woman is set to plead guilty for paying homeless people to register to vote and sign political petitions.
+
+Federal prosecutors charged Brenda Lee Brown Armstrong with allegedly paying people — including homeless individuals — to register to vote while she collected ballot-petition signatures in Los Angeles.
+
+Prosecutors said Armstrong sometimes provided homeless individuals with her former Los Angeles address to list on voter registration forms, which registered them to vote in both California and federal elections.
+
+Armstrong was charged with a felony count of paying another person to register to vote, in which she could face a maximum sentence of five years in federal prison.
+</div>
+
+## pm_afshaa — post 91067
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91067_1779219209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقام ارشد آمریکایی:
+نهاد نظامی اسرائیل و کاخ سفید امروز درباره حمله به ایران گفتگو کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91066
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91066_1779219209.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حکم پژمان جمشیدی که متهم به تجاوز بود صادر شد و به 99 ضربه شلاق محکوم شد‌.
+
+شاکی پرونده: همه چیز تو این پرونده به نفع من بوده و تنها بدون هیچ وکیلی اومدم جلو؛ پژمان رو هرگز نمی‌بخشم.
+
+
+💧Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91065
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91065_1779219210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس صداوسیما: هرکسی جنگ نمیخواد جمع کنه از ایران بره؛ ما تسلیم‌ نمیشیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337987
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337987_1779219212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند مقام آمریکایی به نیویورک‌تایمز گفتند تصمیم ترامپ برای به تاخیر انداختن حمله به ایران، ممکن است عملیات فریب باشد و شاید او همچنان حمله‌های برنامه‌ریزی‌ شده را اجرا کند.
+@iranintltv
+</div>
+
+## FarsiVOA — post 218161
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کمیته نیروهای مسلح مجلس نمایندگان آمریکا روز سه‌شنبه ۲۹ اردیبهشت یک جلسه استماع را با حضور دریابد برد کوپر، فرمانده سنتکام، ژنرال داگوین اندرسون، فرمانده آفریکام، و دانیل زیمرمن، معاون وزیر جنگ در امور امنیت بین‌الملل، برگزار کرد. صدای آمریکا این جلسه را با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218160
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کمیته نیروهای مسلح مجلس نمایندگان آمریکا روز سه‌شنبه ۲۹ اردیبهشت یک جلسه استماع را با حضور دریابد برد کوپر، فرمانده سنتکام، ژنرال داگوین اندرسون، فرمانده آفریکام، و دانیل زیمرمن، معاون وزیر جنگ در امور امنیت بین‌الملل، برگزار کرد. صدای آمریکا این جلسه را با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 124907
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124907_1779219214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ونس: ترجیح آمریکا دیپلماسی است اما برای ازسرگیری جنگ کاملا آماده‌ایم
+
+جی‌دی ونس، معاون رئیس‌جمهور آمریکا با اعلام این که دولت دونالد ترامپ همچنان راهکار دیپلماتیک را برای حل مناقشه با ایران ترجیح می‌دهد افزود، اما کشور ما کاملا آماده است تا برای اطمینان از عدم دستیابی تهران به سلاح هسته‌ای، جنگ را ازسر بگیرد.
+
+ونس سه‌شنبه ۱۹ مه در جریان یک نشست خبری در کاخ سفید گفت که ایالات متحده متعهد است از دسترسی ایران به تسلیحات هسته‌ای جلوگیری کند، زیرا در صورت وقوع چنین اتفاقی، یک رقابت تسلیحاتی منطقه‌ای شکل خواهد گرفت که امنیت جهان را کاهش می‌دهد.
+
+او با بیان این که ایالات متحده در شش هفته اول جنگ، توانایی نظامی متعارف ایران را تضعیف کرده افزود: «این کار با موفقیت انجام شده است. همیشه می‌توان کارهای بیش‌تری انجام داد، اما در حال حاضر رئیس‌جمهور به ما دستور داده که با ایرانی‌ها به صورت تهاجمی مذاکره کنیم.»
+
+ونس با اشاره به "پیشرفت‌های زیادی" که در مذاکره با مقام‌های ایرانی به دست آمده خاطرنشان ساخت: «اما یک گزینه دیگر [گزینه بی] نیز وجود دارد؛ و آن گزینه این است که می‌توانیم کارزار نظامی را برای دستیابی به اهداف آمریکا ازسر بگیریم... اما این چیزی نیست که رئیس‌جمهور بخواهد و فکر نمی‌کنم ایرانی‌ها هم چنین چیزی بخواهند.»
+
+ونس همچنین تأکید کرد: «ما توافقی را نخواهیم پذیرفت که به ایرانی‌ها اجازه داشتن سلاح هسته‌ای را بدهد. بنابراین، همان‌طور که رئیس‌جمهور همین الان به من گفت، ما در وضعیت آماده‌باش کامل به‌سر می‌بریم.»
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124906
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124906_1779219215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 آمریکا از گفت‌وگو با دبیر کل سازمان ملل درباره تنگه هرمز خبر داد
+
+وزارت خارجه آمریکا از گفت‌وگوی مارکو روبیو، وزیر خارجه این کشور با آنتونیو گوترش، دبیرکل سازمان ملل متحد در مورد محدودیت‌هایی که ایران برای کشتی‌رانی در تنگه هرمز ایجاد کرده خبر داد.
+
+به گزارش خبرگزاری رویترز، در این گفت‌وگو درباره تلاش‌های آمریکا جهت جلوگیری از مین‌گذاری‌ و گرفتن عوارض از سوی ایران در این تنگه حیاتی، از جمله صدور قطعنامه شورای امنیت سازمان ملل تبادل نظر صورت گرفته است.
+
+تامی پیگات، سخنگوی این وزارت‌خانه در بیانیه‌ای اعلام کرد که روبیو بر "حمایت قاطع طیف گسترده‌ای از اعضای سازمان ملل از این تلاش‌ها" تأکید کرده است.
+
+بستن تنگه هرمز توسط ایران که در خلال جنگ اسرائيل و آمریکا علیه جمهوری اسلامی صورت گرفت از مباحث اساسی در گفت‌وگوهای صلح این کشور به شمار می‌‌آید.
+
+آمریکا نیز در مقابل، بنادر ایران را تحت محاصره گرفته و تا کنون هیچ کدام از دو طرف از مواضع خود در این جنگ عقب ننشسته‌اند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124905
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124905_1779219216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 روسیه به‌زودی کارکنان خود را به نیروگاه اتمی بوشهر بازمی‌گرداند
+
+الکسی لیخاچف، مدیرعامل شرکت دولتی انرژی اتمی روسیه (روس‌اتم)، در گفت‌وگو با خبرگزاری ریانووستی اعلام کرد، این شرکت انتظار دارد که طرح بازگرداندن کامل نیروهای خود به نیروگاه اتمی بوشهر ایران را ظرف هفته‌های آینده تکمیل کند.
+
+لیخاچف گفت: «اطمینان دارم که در هفته‌های آتی قادر خواهیم بود طرح بازیابی سطوح کارکنان را اجرا کرده و سرعت کارهای ساخت‌وساز را به شاخص‌های برنامه‌ریزی‌شده بازگردانیم.»
+
+به گفته او، عملیات بتن‌ریزی و آرماتوربندی در سازه‌های واحد دوم نیروگاه بوشهر که در حال ساخت است، از سر گرفته شده است.
+
+مدیرعامل روس‌اتم همچنین تصریح کرد، تولید تجهیزات برای واحد جدید طبق برنامه ادامه دارد؛ با این حال، او افزود که هنوز برای بازگرداندن تمامی کارشناسان روسی به محل پروژه زود است.
+
+خروج گسترده پرسنل روسی از نیروگاه بوشهر از اواخر ماه مارس سال جاری پس از آن انجام شد که در خلال جنگ اسرائيل و آمریکا علیه ایران حوالی این نیروگاه نیز آماج قرار گرفت.
+
+در اواسط ماه آوریل شرکت روس‌اتم اعلام کرد که پرسنل خود را از ایران خارج کرده و تنها حدود ۲۰ متخصص را برای نظارت بر عملکردهای حیاتی نیروگاه بوشهر در آن‌جا نگه داشته است.
+
+@dw_farsi
+</div>
+
+## Dirty_Kids — post 389772
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389772_1779219216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز سالگرد سقوط بالگرد آنگوزمان و درازعلی هست گویا. روز خرس مبارک. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389771
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389771_1779219217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز سالگرد سقوط بالگرد آنگوزمان و درازعلی هست گویا. روز خرس مبارک. @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389770
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389770_1779219217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز سالگرد سقوط بالگرد آنگوزمان و درازعلی هست گویا.
+روز خرس مبارک.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121174
+
+<div align="center">
+  <a href="telegram/content/alonews_121174_1779219219.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈برد کوپر، فرمانده سنتکام درباره مدرسه میناب : بررسی نظامی آمریکا درباره انفجار مدرسه‌ میناب پیچیده‌ست - چون این مدرسه داخل یک سایت فعال موشک‌های کروز جمهوری اسلامی قرار داشته - هر دو طرف باید اسناد مربوط به این مدرسه رو منتشر کنن و پرونده کشته‌شدن این تعداد…
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 22:53
 ---
 
