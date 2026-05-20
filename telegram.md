@@ -7,6 +7,230 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 16:15
+---
+
+## VahidOOnLine — post 241134
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241134_1779281144.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ انفجار خودرو در مرکز مالی منهتن نیویورک
+
+♦️انفجار و آتش‌سوزی یک خودرو در نزدیکی مجسمه مشهور «گاو خشمگین» در منطقه وال‌استریت منهتن نیویورک، باعث ایجاد وحشت و سردرگمی میان شهروندان، گردشگران و کارمندان دفترهای کاری شد.
+این حادثه حدود ساعت ۶ عصر به وقت محلی و در یکی از پرترددترین و گردشگری‌ترین نقاط شهر نیویورک رخ داد؛ جایی که مجسمه نمادین «گاو خشمگین» (Charging Bull) به‌عنوان سمبل وال‌استریت و قلب اقتصادی آمریکا شناخته می‌شود و روزانه هزاران نفر از آن بازدید می‌کنند.
+بر اساس گزارش‌های اولیه، یک وسیله نقلیه ابتدا دچار آتش‌سوزی شد و سپس انفجاری در محل رخ داد. نیروهای پلیس و امدادی نیویورک بلافاصله در منطقه حاضر شدند و محدوده حادثه را تحت کنترل قرار دادند.
+تاکنون مقام‌های آمریکایی جزئیات رسمی درباره علت حادثه، احتمال عمدی بودن آن، میزان خسارت‌ها یا شمار احتمالی تلفات و مجروحان منتشر نکرده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341981
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341981_1779281145.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“He was the absolute best dad in the world.”
+
+The daughter of Amin Abdullah — the hero security guard killed during the deadly shooting at a San Diego mosque — remembers her father through tears as the community mourns the three men killed in the attack.
+
+Police say Abdullah helped lock down the Islamic Center and confronted the shooters, actions authorities believe saved lives with nearly 140 children inside the building at the time.
+
+Investigators are treating the massacre as a hate crime after officials say the teenage suspects arrived heavily armed and left behind extremist writings.
+</div>
+
+## FarsiVOA — post 218217
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برگزاری نشست «آینده ایران: وضعیت و چشم‌انداز ملیت‌ها در ایران» به میزبانی بامبوس چارالامبوس نماینده پارلمان بریتانیا
+</div>
+
+## IranianMinds — post 20433
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع شبکه العربیه:
+
+آمریکا به پاکستان اطلاع داده که در مسئله هسته‌ای و تنگه هرمز، هیچ امتیازی نخواهد داد.
+منابع افزودند که ایران تضمین‌های آمریکایی برای پایان جنگ را کافی نمی‌داند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تصویب طرحی که راه برگزاری انتخابات زودهنگام در اسرائیل را هموار می‌کند
+
+در اسرائیل نمایندگان کنست، لایحه‌ای را تصویب کرده‌اند که بر اساس آن پارلمان منحل می‌شود و احتمالا انتخابات سراسری زودتر از موقع برگزار می‌شود.
+
+این لایحه توسط احزاب ائتلاف حاکم راست‌گرا ارائه شده است که می‌گویند بنیامین نتانیاهو، نخست وزیر، را دیگر شریک قابل اعتمادی برای خود نمی‌بینند.
+
+این به معنای برگزاری انتخابات چند هفته زودتر از مهلت ۲۷ اکتبر است، اگرچه تاریخ دقیق آن قرار است در مرحله بعدا مشخص شود.
+
+نظرسنجی‌ها حاکی از آن است که آقای نتانیاهو احتمالا در انتخابات بعدی شکست خواهد خورد.
+
+https://bbc.in/4ulwfeR
+@BBCPersian
+</div>
+
+## BBCPersian — post 281610
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281610_1779281147.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻میزان، خبرگزاری قوه قضائیه ایران گزارش داد که رشید مظاهری، دروازه‌بان پیشین تیم ملی فوتبال ایران، هنگام تلاش برای خروج «غیرقانونی» از کشور بازداشت شده است و ادعای همسر او را مبنی بر «نگهداری‌اش در انفرادی در شرایط خیلی سخت»، تکذیب کرد.
+
+پیش‌تر مریم عبدالهی، همسر آقای مظاهری، در صفحه اینستاگرامش نوشت: «رشید همیشه برای حق ایستاد و هزینه‌ همین ایستادگی را حالا با حبس در انفرادی می‌دهد به زندان مرکزی ارومیه منتقل شده و در سلول انفرادی نگهداری می‌شود.» او همچنین از«جامعه ورزش، رسانه‌ها و مردم وطن‌پرست» خواسته بود که بیشتر از قبل «صدای رشید مظاهری باشند.»
+
+قوه قضائیه ایران، با رد ادعای خانم عبداللهی برای نگهداری رشید مظاهری در انفرادی، می‌گوید که این بازیکن سابق فوتبال در بند عمومی زندان نگهداری می‌شود.
+
+در این گزارش همچنین ادعا شده است که آقای مظاهری «قصد داشته با تغییر چهره و پرداخت رشوه به ماموران مرزبانی از مرز‌های غربی به صورت غیرقانونی از کشور خارج شود که در هنگام خروج بازداشت می‌شود.»
+رشید مظاهری بعد از انتشار ویدیویی علی خامنه‌ای را مسئول کشته‌شدن معترضان دی ۱۴۰۴ معرفی کرده بود.
+
+📷Hamshahri
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کولر آبی بوی امتحان نهایی میده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389803
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389803_1779281148.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در سالگرد آنگوزمان شدن شهیدِ خدمت رئیسی بد نیست این ویدئو رو دوباره ببینیم…
+
+راستی کسی از حلقوم رهبری خبری داره؟ اتفاقی براش افتاده؟ 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113061
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زندان اوین؛ گزارشی از اعتصاب کریگ و لیندزی فورمن، زوج بریتانیایی
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– کریگ فورمن و لیندزی فورمن، دو شهروند بریتانیایی محبوس در زندان اوین، در اعتراض به شرایط نگهداری‌شان در زندان و قطع امکان برقراری تماس تلفنی با خانواده، دست به اعتصاب زده‌اند.
+
+#کریگ_فورمن #لیندزی_فورمن
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 121301
+
+<div align="center">
+  <a href="telegram/content/alonews_121301_1779281149.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه خانواده پاکستانی اسم 2 پسر دوقلوی تازه متولدشون رو "علی خامنه‌ای" و "علی لاریجانی" گذاشتن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121300
+
+<div align="center">
+  <a href="telegram/content/alonews_121300_1779281149.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله به الدویر، لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121299
+
+<div align="center">
+  <a href="telegram/content/alonews_121299_1779281150.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویر دیده نشده از شب ۱۸ دی
+
+
+👑حماسه‌ای که ملت شیر و خورشید رقم زدند
+
+
+✅@AloNews
+</div>
+
+## alonews — post 121298
+
+<div align="center">
+  <a href="telegram/content/alonews_121298_1779281152.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب الله تصاوير منتشر کرد که نشان مي دهد يک fpv به يک باتري گنبد آهنين در محل اسرائيلي جلال العالم در مرز حمله کرده است.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121297
+
+<div align="center">
+  <a href="telegram/content/alonews_121297_1779281152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ظریف: ما نیاز به تضمین از قول‌شکنان و پیمان‌شکنان نداریم/ مردم و نیروهای مسلح ما بزرگ‌ترین تضمین برای ما هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121296
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱لطفا توییتر الونیوز رو دنبال کنین 
+🔴پست های انگلیسی در رابطه با جنایت های حکومت به انگلیسی نوشته شده و افراد مهم منشن و هشتگ های مهم قرار داده شده. 
+🔴ریپست کنین. مهمترین کمک این روزها جلوگیری از پروپاگاندا حکومت علیه این قتل عام مردم هستش. خونشون نباید پایمال…
+</div>
+
+## alonews — post 121295
+
+<div align="center">
+  <a href="telegram/content/alonews_121295_1779281153.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام: ۹۰ کشتی رو تغییر مسیر دادیم و ۴ کشتی رو غیرفعال کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 16:03
 ---
 
@@ -294,8 +518,6 @@ The Hezbollah terrorist organization continues to operate adjacent to and from w
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
