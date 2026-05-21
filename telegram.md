@@ -7,6 +7,191 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 22:43
+---
+
+## VahidOOnLine — post 241386
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241386_1779390796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث شامگاه پنج‌شنبه به نقل از یک منبع دیپلماتیک ارشد اعلام کرد که فرمانده ارتش پاکستان امشب به تهران سفر نخواهد کرد.
+
+پیش‌تر الحدث گزارش داده بود فرمانده ارتش پاکستان ممکن است روز پنج‌شنبه برای اعلام نهایی شدن متن توافق میان تهران و واشینگتن به ایران سفر کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342076
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342076_1779390796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Top Democrats suddenly go quiet when asked about the explosive Reddit posts from Maine Senate candidate Graham Platner.
+
+Fox Digital pressed Democratic leaders on whether Platner’s newly uncovered vulgar online comments are becoming a political problem ahead of the midterms... and got little to no response.
+</div>
+
+## kianmeli1 — post 87542
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87542_1779390797.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی قرارگاه خاتم
+
+واشنگتن در منطقه غرب آسیا جای پایی نخواهد داشت.
+
+واشنگتن در نهایت مجبور به ترک منطقه خواهد شد.
+</div>
+
+## kianmeli1 — post 87541
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پروکسی های جمهوری اسلامی: منتظر شروع مجدد جنگیم
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87540
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث شامگاه پنج‌شنبه به نقل از یک منبع دیپلماتیک ارشد اعلام کرد که فرمانده ارتش پاکستان امشب به تهران سفر نخواهد کرد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338283
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338283_1779390798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث شامگاه پنج‌شنبه به نقل از یک منبع دیپلماتیک ارشد اعلام کرد که فرمانده ارتش پاکستان امشب به تهران سفر نخواهد کرد.
+
+پیش‌تر الحدث گزارش داده بود فرمانده ارتش پاکستان ممکن است روز پنج‌شنبه برای اعلام نهایی شدن متن توافق میان تهران و واشینگتن به ایران سفر کند.
+https://iranintl.com/202605213043
+</div>
+
+## FarsiVOA — post 218317
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی جوانمردی: اگر پرزیدنت ترامپ نبود خاورمیانە با خطری بی‌سابقە مواجە می‌شد!
+</div>
+
+## DW_Farsi — post 124984
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124984_1779390798.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 آمریکا ۹ نفر را به دلیل ارتباط با گروه تروریستی حزب‌الله تحریم کرد
+
+ایالات متحده ۹ فرد مرتبط با گروه تروریستی حزب‌الله را تحریم کرد و آنها را به "اخلال در روند صلح در لبنان" متهم کرد.
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، گفت: «حزب‌الله یک سازمان تروریستی است و باید به طور کامل خلع سلاح شود.»
+
+گروه تروریستی حزب‌الله به شدت با گفت‌وگوهای مستقیم اخیر میان نمایندگان لبنان و اسرائیل مخالفت کرده است. واشنگتن و متحدش اسرائیل خواستار خلع سلاح کامل این گروه تروریستی شده‌اند.
+
+از جمله افرادی که تحریم شده‌اند می‌توان به حسن فضل‌الله، ابراهیم الموسوی و حسین الحاج حسن، نمایندگان حزب‌الله، و محمد عبدالمطلب فنیش، رئیس شورای اجرایی این گروه تروریستی، اشاره کرد.
+
+واشنگتن همچنین محمدرضا شیبانی، سفیر تعیین‌شده جمهوری اسلامی در لبنان، را تحریم کرد. او در ماه مارس عنصر نامطلوب اعلام شد و به او دستور داده شد لبنان را ترک کند.
+
+احمد اسعد بعلبکی و علی احمد صفوی از جنبش امل، متحد سیاسی حزب‌الله، نیز در فهرست تحریم‌ها قرار گرفته‌اند، همچنین سرتیپ خضر نصرالدین و سرهنگ سمیر حمادی، دو افسر شاغل ارتش لبنان.
+@dw_farsi
+</div>
+
+## BBCPersian — post 281722
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281722_1779390799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر امور خارجه ایالات متحده، روز پنجشنبه ابراز امیدواری کرد که سفر فرمانده ارتش پاکستان به ایران، دیپلماسی برای پایان دادن به جنگ را پیش ببرد و گفت پیشرفت‌هایی حاصل شده است.
+
+آقای روبیو به خبرنگاران گفت که مطلع است امروز مقامات پاکستانی‌ به تهران سفر خواهند کرد.
+
+او ابراز امیدواری که این امر به پیشرفت بیشتر مذاکرات برای پایان دادن به جنگ کمک کند.
+
+وزیر امور خارجه آمریکا، همچنین باردیگر از ناتو به دلیل عدم حمایت از جنگ آمریکا علیه ایران انتقاد کرد.
+
+او به خبرنگاران گفت که دونالد ترامپ «از آنها نمی‌خواهد که جت‌های جنگنده خود را اعزام کنند. اما آنها از انجام هر کاری خودداری می‌کنند. ما از این بابت بسیار ناراحت هستیم.»
+
+📸 Gettya
+
+https://bbc.in/3Re8181
+@BBCPersian
+</div>
+
+## Hranews — post 113085
+
+<div align="center">
+  <img src="telegram/content/Hranews_113085_1779390800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زندان شیبان اهواز؛ گزارشی از بازداشت و آزادی مجتبی موسوی
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– مجتبی موسوی، فعال سیاسی دهم اسفندماه در اهواز بازداشت و پس از مدتی به زندان شیبان اهواز منتقل شد. وی نهایتا مورخ ۲۹ فروردین ماه با تودیع وثیقه از زندان آزاد شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، مجتبی موسوی، فعال سیاسی در تاریخ ۱۰ اسفتد ۱۴۰۴، بازداشت شد.
+
+بازداشت این شهروند توسط نیروهای امنیتی صورت گرفت و مجتبی موسوی پس از مدتی با پایان ایام بازجویی به زندان شیبان اهواز منتقل شد.
+پس از ارجاع پرونده مجتبی موسوی، به دادسرا، با آزادی موقت وی موافقت شد و این فعال سیاسی نهایتا در تاریخ ۲۹ فروردین ماه سال جاری با تودیع وثیقه از زندان آزاد شد.
+
+ادامه مطلب
+
+#مجتبی_موسوی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 121646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️اپلیکیشن‌ها را فقط از Google Play یا App Store نصب کنید. 
+🔴فایل‌هایی که در تلگرام، کانال‌ها، گروه‌ها یا از طریق لینک مستقیم دانلود منتشر می‌شوند، اگر از منبع معتبر نباشند می‌توانند خطرناک باشند. 
+🔴نصب این فایل‌ها ممکن است باعث شود اطلاعات شخصی شما، رمزها،…
+</div>
+
+## alonews — post 121645
+
+<div align="center">
+  <a href="telegram/content/alonews_121645_1779390801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله‌ی تعداد بالای پهپاد اوکراین به روسیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121644
+
+<div align="center">
+  <a href="telegram/content/alonews_121644_1779390801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بهاروند، معاون حقوقی پیشین وزارت خارجه: چین محتاط است و تا از نتیجه کاری مطمئن نباشد قدم برنمی‌دارد؛ فعلاً چنین وضعیتی را نمی‌بینم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 22:33
 ---
 
