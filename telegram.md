@@ -7,6 +7,37 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 01:13
+---
+
+## WithYashar — post 11890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۸ سوخت رسان در آسمان منطقه !!!!
+@withyashar
+</div>
+
+## WithYashar — post 11889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## alonews — post 121676
+
+<div align="center">
+  <a href="telegram/content/alonews_121676_1779399824.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع خبری از شنیده‌شدن صدای انفجارهای مهیب در دیرالزور سوریه خبر دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 01:03
 ---
 
