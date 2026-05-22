@@ -7,6 +7,168 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 12:13
+---
+
+## VahidOOnLine — post 241482
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241482_1779439393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان نظارت بر اینترنت نت‌بلاکس اعلام کرد خاموشی گسترده اینترنت در ایران وارد هشتاد و چهارمین روز شده و دسترسی به شبکه جهانی اینترنت برای بیش از ۱۹۹۲ ساعت همچنان به‌طور گسترده مختل است.
+نت‌بلاکس در گزارشی نوشت ادامه این محدودیت‌ها شکاف‌های اجتماعی و اقتصادی را عمیق‌تر کرده و ارتباط با جهان خارج بیش از پیش به «امتیاز، تبعیت و دسترسی ویژه» وابسته شده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر امور خارجه آلمان: ما در حال آماده شدن برای مشارکت در تأمین امنیت تنگه هرمز تحت رهبری بریتانیا هستیم، اما انتظار ماموریتی مشابه ناتو را ندارم
+@withyashar
+</div>
+
+## mwarmonitor — post 9459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبع پاکستانی به الجزیره:
+«اسلام‌آباد همچنان نسبت به امکان رسیدن به یک تفاهم مرحله‌ای میان واشنگتن و تهران خوش‌بین است.»
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 4835
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4835_1779439393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤡
+🔺 چادری‌ها بی‌حجاب‌های حکومتی را تحمل نمی‌کنند.
+
+#حجاب #چادری #تجمعات_حکومتی
+@DEJradio
+</div>
+
+## IranIntlTV — post 338372
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338372_1779439396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، فدراسیون فوتبال جمهوری اسلامی برای دریافت ویزای آمریکا، خبرنگاران و عکاسانی را انتخاب کرده که در سوابق حرفه‌ای خود هیچ انتقادی از این فدراسیون نداشته‌اند. همچنین گفته می‌شود برای هر یک از این ۱۵ نفر، روزانه ۵۰ دلار کمک‌هزینه در نظر گرفته شده است.
+جزییات بیشتر با رها پوربخش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## ManotoTV — post 105738
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105738_1779439398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان نظارت بر اینترنت نت‌بلاکس اعلام کرد خاموشی گسترده اینترنت در ایران وارد هشتاد و چهارمین روز شده و دسترسی به شبکه جهانی اینترنت برای بیش از ۱۹۹۲ ساعت همچنان به‌طور گسترده مختل است.
+نت‌بلاکس در گزارشی نوشت ادامه این محدودیت‌ها شکاف‌های اجتماعی و اقتصادی را عمیق‌تر کرده و ارتباط با جهان خارج بیش از پیش به «امتیاز، تبعیت و دسترسی ویژه» وابسته شده است.
+</div>
+
+## IranianMinds — post 20517
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20517_1779439399.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مارکو‌ روبیو:
+
+ایران در تلاش است یک سیستم عوارض در تنگه هرمز ایجاد کند و سعی دارد عمان را قانع کند تا به این سیستم عوارض بپیوندد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20516
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20516_1779439402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران دهه ۱۹۷۰ میلادی …
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊 هیلکن دواچ بوران، بی‌بی‌سی ترکی، استانبول
+
+🔻رونمایی مرکز تحقیق و توسعه وزارت دفاع ترکیه از موشک ییلدیریم‌هان در ۵ مه، نقطه عطفی برای صنایع دفاعی ترکیه به شمار می‌رود.
+
+ترکیه با رونمایی از ییلدیریم‌هان، برای نخستین بار رسما اعلام کرد که قصد دارد موشک بالستیک قاره‌پیما تولید کند.
+
+در مراسم معرفی این موشک که در نمایشگاه دفاعی ساها ۲۰۲۶ در استانبول برگزار شد، ماکتی از موشک همراه با مشخصات فنی‌ آن به نمایش در آمد.
+
+کارشناسانی که با بخش ترکی بی‌بی‌سی گفت‌وگو کرده‌اند، ییلدیریم‌هان را بخشی از تلاش ترکیه برای تثبیت جایگاه خود به‌عنوان یک بازیگر بین‌المللی ارزیابی می‌کنند.
+
+برخی کارشناسان با تاکید بر اینکه برد اعلام‌شده این موشک فراتر از نیازهای دفاعی ترکیه است، می‌گویند این موضوع می‌تواند در ذهن «رقبای بالقوه» آنکارا پرسش‌هایی ایجاد کند.
+
+بیشتر بخوانید:
+
+https://bbc.in/4tNsFcs
+📸Getty Images/ Reuters/ Anadolu via Getty Images/ AFP via Getty Images/ Bloomberg via Getty Images
+</div>
+
+## Dirty_Kids — post 389927
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389927_1779439402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلوی رگبار مسلسل جاوید شاه گفتن و کشته شدن.
+من کی باشم که حرف دیگه‌ای بزنم!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389926
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389926_1779439404.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عروسیه یا جشن تعیین جنسیت با تفنگ؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389925
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389925_1779439404.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این جلوه‌های ویژه سال ۱۹۸۱ روی دختر بریتانیایی بنام سوزانا ویلیس انجام شده توی فیلم "باشگاه هیولاها"
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105738
+
+<div align="center">
+  <a href="telegram/content/manototv_105738_1779439406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان نظارت بر اینترنت نت‌بلاکس اعلام کرد خاموشی گسترده اینترنت در ایران وارد هشتاد و چهارمین روز شده و دسترسی به شبکه جهانی اینترنت برای بیش از ۱۹۹۲ ساعت همچنان به‌طور گسترده مختل است.
+نت‌بلاکس در گزارشی نوشت ادامه این محدودیت‌ها شکاف‌های اجتماعی و اقتصادی را عمیق‌تر کرده و ارتباط با جهان خارج بیش از پیش به «امتیاز، تبعیت و دسترسی ویژه» وابسته شده است.
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 12:03
 ---
 
