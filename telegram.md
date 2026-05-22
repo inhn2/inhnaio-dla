@@ -7,6 +7,68 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 09:42
+---
+
+## mwarmonitor — post 9450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روزنامه وال‌استریت ژورنال گزارش داد: وزارت دادگستری ایالات متحده تحقیقاتی را درباره استفاده ایران از پلتفرم بایننس به‌منظور دور زدن احتمالی تحریم‌ها آغاز کرده است.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 338346
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338346_1779430346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای جمعه ۱ خرداد
+@iranintltv
+</div>
+
+## alonews — post 121695
+
+<div align="center">
+  <a href="telegram/content/alonews_121695_1779430347.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نظرسنجی نیویورک تایمز: ۹۵ درصد رأی‌دهندگان دموکرات با جنگ آمریکا و اسرائیل علیه ایران مخالف هستند
+
+
+🔴 سه‌چهارم آنها نیز مخالف کمک به اسرائیل هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121694
+
+<div align="center">
+  <a href="telegram/content/alonews_121694_1779430347.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 استولتنبرگ، وزیر دارایی نروژ و دبیرکل پیشین ناتو:  ناتو بدون آمریکا دوام نخواهد آورد، اتحادیه اروپا باید در مسائل امنیت جمعی و تضمین‌های دفاعی جایگزین ناتو شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121693
+
+<div align="center">
+  <a href="telegram/content/alonews_121693_1779430347.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر عراق: دستور بررسی ابعاد حملات به عربستان و امارات صادر شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 09:32
 ---
 
