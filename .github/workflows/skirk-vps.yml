@@ -1,0 +1,39 @@
+name: skirk-vps
+
+on:
+  workflow_dispatch:
+    inputs:
+      vpn_enabled:
+        description: 'Route all traffic through WireGuard VPN (requires WG_CONFIG secret)'
+        type: boolean
+        default: false
+
+jobs:
+  run-exit:
+    runs-on: ubuntu-latest
+    timeout-minutes: 360
+
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v4
+
+      - name: "Set up WireGuard VPN (if enabled)"
+        id: vpn
+        run: |
+          # <--- insert the VPN setup block from above --->
+
+      - name: Install Skirk
+        run: |
+          curl -fsSL https://raw.githubusercontent.com/ShahabSL/Skirk/main/install.sh | sh
+
+      - name: Prepare exit configuration
+        env:
+          SKIRK_EXIT_CONFIG: ${{ secrets.SKIRK_EXIT_CONFIG }}
+        run: |
+          mkdir -p skirk-kit
+          echo "$SKIRK_EXIT_CONFIG" > skirk-kit/exit.json
+          echo "Config file created with $(wc -c < skirk-kit/exit.json) bytes."
+
+      - name: Start exit service
+        run: |
+          skirk serve-exit --config skirk-kit/exit.json
