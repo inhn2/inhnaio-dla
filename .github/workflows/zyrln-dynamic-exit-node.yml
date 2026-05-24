@@ -1,23 +1,33 @@
 name: zyrln-dynamic-exit-node
 
 on:
-  workflow_dispatch:   # manual trigger from the Actions tab
+  workflow_dispatch:
+    inputs:
+      vpn_enabled:
+        description: 'Route all traffic through WireGuard VPN (requires WG_CONFIG secret)'
+        type: boolean
+        default: false
 
 jobs:
   relay:
     runs-on: ubuntu-latest
-    timeout-minutes: 360   # 6 hours (max for public repos)
+    timeout-minutes: 360
 
     steps:
       - name: Checkout
         uses: actions/checkout@v4
 
+      - name: "Set up WireGuard VPN (if enabled)"
+        id: vpn
+        run: |
+          # <--- insert the VPN setup block from above --->
+
       - name: Set up Go
         uses: actions/setup-go@v5
         with:
-          go-version: '1.22'   # or newer (must support your source)
+          go-version: '1.22'
 
-      - name: Build
+      - name: Build relay binary
         run: go build -o zyrln-relay .github/script/zyrln-vps-exit-node.go
 
       - name: Start relay in background
@@ -27,7 +37,6 @@ jobs:
         run: |
           chmod +x zyrln-relay
           ./zyrln-relay &
-          # Wait for health endpoint
           for i in $(seq 1 20); do
             if curl -s http://127.0.0.1:8787/healthz >/dev/null 2>&1; then
               echo "Relay is up"
@@ -36,22 +45,20 @@ jobs:
             sleep 0.5
           done
 
-      - name: Install
+      - name: Install cloudflared
         run: |
           curl -L https://github.com/cloudflare/cloudflared/releases/latest/download/cloudflared-linux-amd64 -o cloudflared
           chmod +x cloudflared
           ./cloudflared --version
 
-      - name: Create
+      - name: Create public URL
         run: |
           ./cloudflared tunnel --url http://127.0.0.1:8787 2>&1 | tee tunnel.log &
           sleep 5
-          # Extract the trycloudflare.com URL
           grep -oP 'https://.*?\.trycloudflare\.com' tunnel.log | head -1 > tunnel-url.txt
           echo "================================================================="
           echo "PUBLIC RELAY URL: $(cat tunnel-url.txt)"
           echo "================================================================="
-        id: tunnel
 
-      - name: Keep
+      - name: Keep alive
         run: sleep 21600
