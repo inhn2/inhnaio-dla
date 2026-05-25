@@ -7,6 +7,333 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 01:13
+---
+
+## VahidOOnLine — post 242189
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242189_1779745384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صابرین‌نیوز، کانال تلگرامی مشترک سپاه قدس و حشدالشعبی عراق، بامداد سه‌شنبه، پنجم خردادماه، از کشته‌شدن دو نیروی سپاه پاسداران در حمله جنگنده‌های دشمن به دو قایق در خلیج فارس خبر داد. همزمان، گزارش‌های رسیده از شنیده‌شدن صدای انفجارها در اصفهان و بابلسر خبر می‌دهد. پیش از این، تابناک بامداد سه‌شنبه، پنجم خردادماه، گزارش داد: «باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند تهران گویا فعال شد !
+@withyashar
+</div>
+
+## WithYashar — post 12486
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۴ نفر فوتی بردن بیمارستان شهید محمدی @withyashar
+</div>
+
+## WithYashar — post 12485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صابرین نیوز : اسامی شهدای حمله سحرگاه شب گذشته ۴ خرداد در جنوب جزیره لارک
+
+بر اساس اعلام منابع محلی نام سه تن از شهدای حمله دشمن متخاصم آمریکایی-اسرائیلی که تا این لحظه شناسایی شدند به شرح زیر است:
+
+شهید عباس اسلامی
+شهید قدرت زرنگاری
+گشهید عبدالرضا گلزاری
+
+گفتنی است تعداد شهدا هنوز مشخص نشده.
+@withyashar
+</div>
+
+## WithYashar — post 12484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما : حمله شب گذشته دشمن آمریکایی-اسرائیلی به شناورها در جنوب جزیره لارک بر اساس اعلام منابع محلی شب گذشته جنگنده‌های آمریکایی-اسرائیلی چند شناور ایرانی را در جنوب جزیره لارک مورد هدف قرار دادند. طبق اعلام منابع محلی چند تن از هموطنانمان در این حملات…
+</div>
+
+## WithYashar — post 12483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما : حمله شب گذشته دشمن آمریکایی-اسرائیلی به شناورها در جنوب جزیره لارک
+
+بر اساس اعلام منابع محلی شب گذشته جنگنده‌های آمریکایی-اسرائیلی چند شناور ایرانی را در جنوب جزیره لارک مورد هدف قرار دادند.
+
+طبق اعلام منابع محلی چند تن از هموطنانمان در این حملات به شهادت رسیده‌اند.
+@withyashar
+</div>
+
+## mwarmonitor — post 9719
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨«درگیری‌هایی میان نیروی دریایی ایران و نیروهای آمریکایی رخ داده که در نتیجه آن تعدادی کشته شده‌اند، که عبارتند از:
+
+پاسدار عباس اسلامی
+پاسدار قدرت زرنگاری
+پاسدار عبدالرضا گلزاری
+پاسدار حسین ستوده»
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9718
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جزیره لارک در جنوب ایران هدف قرار گرفت
+</div>
+
+## mwarmonitor — post 9717
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨
+</div>
+
+## mwarmonitor — post 9716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر فوری
+</div>
+
+## Shin_Persian — post 6227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 21:37:03 UTC
+
+No explosions in Babolsar.
+No explosions in Isfahan.
+No explosions in Qom.
+Yes explosions &amp; AA activity in Bandar Abbas.
+No official statements, Yet.
+
+فارسی
+
+هیچ انفجاری در بابلسر رخ نداده است.
+هیچ انفجاری در اصفهان رخ نداده است.
+هیچ انفجاری در قم رخ نداده است.
+بله، انفجارها و فعالیت پدافند هوایی در بندرعباس گزارش شده است.
+هنوز هیچ بیانیه رسمی صادر نشده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15014
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15014_1779745384.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون؛ پرواز هواپیمای سوخت‌رسان آمریکایی بر فراز منطقه.
+</div>
+
+## Persian_Trend_Official — post 15013
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15013_1779745384.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار از کرمانشاه و اصفهان
+</div>
+
+## Persian_Trend_Official — post 15010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند در قم
+تاکنون ده ها موشک پرتاب شده
+</div>
+
+## Persian_Trend_Official — post 15009
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15009_1779745385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایالات متحده آمریکا مادر همه بمب ها را به خاورمیانه ارسال کرده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15008
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15008_1779745386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹 آماده باش سراسری به یگان های آفندی سپاه و ارتش‼️
+</div>
+
+## IranianMinds — post 20770
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20770_1779745387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فعالیت سوخت‌رسان‌ها، الان
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282041
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌ها از شنیده شدن صدای انفجارهایی در بندرعباس و حاشیه خلیج فارس
+
+چند نفر از مخاطبان کانال خبری وحید آنلاین که از بندرعباس پیغام فرستاده‌اند از شنیدن صدای دو انفجار و فعال شدن پدافندهای ضدهوایی در حدود ساعت ۱۱:۴۰ دوشنبه شب به وقت محلی خبر داده‌اند.
+
+خبرگزاری فارس هم با اشاره به چنین گزارش‌هایی نوشته «هنوز محل دقیق و منشأ این صداها مشخص نیست».
+
+به گزارش فارس گزارش‌های مشابهی هم از حوالی «سیریک و جاسک» در حاشیه خلیج فارس مخابره شده است.
+
+https://bbc.in/4tYLaei
+@BBCPersian
+</div>
+
+## BBCPersian — post 282040
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282040_1779745387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل می‌گوید ساعتی پس از آنکه بنیامین نتانیاهو، نخست‌وزیر اسرائیل اعلام کرد اسرائیل در حال جنگ با حزب‌الله است، موجی از حملات هوایی را در سراسر لبنان آغاز کرده است.
+
+از جمله مناطقی که هدف این حملات قرار گرفته است «مواضع حزب‌الله در دره بقاع در شرق لبنان» اعلام شده است.
+
+آقای نتانیاهو روز دوشنبه اعلام کرد که به ارتش دستور داده حملات خود در لبنان را تشدید کند تا حزب‌الله را «در هم بکوبد.»
+
+او این گروه را به هدف قرار دادن نیروهای اسرائیلی با حملات پهپادی متهم کرد.
+
+نخست‌وزیر اسرائیل گفت ارتش این کشور «ضربات سنگینی» به حزب‌الله وارد خواهد کرد.
+
+او افزود که اسرائیل «در حال جنگ» با این گروه است و در هفته‌های اخیر ۶۰۰ عضو حزب‌الله را کشته است.
+
+آقای نتانیاهو گفت: «دامنه حملات خود علیه حزب‌الله را افزایش خواهیم داد و متوقف نخواهیم شد.»
+
+حزب‌الله در چند هفته گذشته به حملات پهپادی خود به مواضع ارتش اسرائیل ادامه داده است.
+
+
+📷Reuters
+https://bbc.in/4tYLaei
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهک تروریستی «الجیش الکانفیگ‌فروش» مسئولیت حمله به بندرعباس رو گردن گرفت.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غیررسمی:
+جنگنده‌های آمریکا به دو قایق تندروی سپاه حمله کردن که باعث کشته شدن 4 نفر شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390191
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390191_1779745388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زیرنویس صداوسیما و تایید صدای انفجار در بندرعباس
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122687
+
+<div align="center">
+  <a href="telegram/content/alonews_122687_1779745389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نام سه تن از کشته شدگان نیروی دریایی سپاه
+
+
+🔴عباس اسلامی
+
+🔴قدرت زرنگاری
+
+🔴عبدالرضا گلزاری
+
+تاکنون باقی تلفات اعلام نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروهک تروریستی «الجیش الکانفیگ‌» مسئولیت حمله به بندرعباس رو گردن گرفت. [@AloTweet]
+</div>
+
+## alonews — post 122685
+
+<div align="center">
+  <a href="telegram/content/alonews_122685_1779745389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴اسرائیل: چهار نیروی سپاه در حملات آمریکا به قایق‌ها کشته شدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122684
+
+<div align="center">
+  <a href="telegram/content/alonews_122684_1779745389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طبق برخی گزارشات دو قایق تندرو سپاه هدف حمله جنگنده آمریکایی قرار گرفتن 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122683
+
+<div align="center">
+  <a href="telegram/content/alonews_122683_1779745390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون پرواز دو فروند هواپیما سوخترسان آمریکایی در آسمان خلیج فارس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 01:02
 ---
 
