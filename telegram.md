@@ -7,6 +7,124 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 00:32
+---
+
+## VahidOOnLine — post 242184
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242184_1779742975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با هشتادوهفتمین روز قطع اینترنت جهانی در ایران، خبرگزاری ایرنا دوشنبه‌شب گزارش داد که با توجه به تایید مصوبه بازگشت اینترنت به وضعیت قبل از دی‌ماه ۱۴۰۴ و ابلاغ آن به وزارت ارتباطات، «انتظار می‌رود این دستور فردا (سه‌شنبه، پنجم خردادماه) اجرایی شود و اینترنت بین‌الملل به‌زودی دسترسی مردم قرار بگیرد». براساس این گزارش، پیش از این، احسان چیت‌ساز، معاون سیاست گذاری و برنامه‌ریزی توسعه فاوا و اقتصاد دیجیتال وزارت ارتباطات با انتشار مطلبی در اکس از ابلاغ مصوبه بازگشایی اینترنت توسط پزشکیان خبر داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر ها حاکی از شنیده شدن صدای جنگنده در دزفول و بهبهان.
+@withyashar
+</div>
+
+## WithYashar — post 12470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گویا اشتباه تایپی بوده مقتصات حمله رو بجا جنوب لبنان ، جنوب ایران نوشتن 😅🤣
+@withyashar
+</div>
+
+## mwarmonitor — post 9714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بنیامین نتانیاهو می‌گوید اسرائیل «در حال جنگ با حزب‌الله است» و تأکید کرد که اسرائیل فشار نظامی را کاهش نخواهد داد و او به نیروها دستور داده است «پدال را حتی محکم‌تر فشار دهند». 📌نتانیاهو گفت حزب‌الله در حال شلیک پهپادها، از جمله پهپادهای فیبر نوری است،…
+</div>
+
+## Persian_Trend_Official — post 14999
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14999" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 8.45 مگابایت
+
+اتاق جنگ دوشنبه 4 خرداد | حمله گسترده اسرائیل به لبنان نشانه توافق با تهران ؟
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سامانه‌های پدافند هوایی ایران در بندرعباس و بندر جاسک فعال شدند
+
+▪️ گزارش‌ها حاکی از فعال‌شدن پدافند هوایی ایران بر فراز Bandar Abbas و Bandar Jask است
+
+▪️ منابع غیررسمی از درگیری پدافند با اهداف هوایی خبر می‌دهند، اما هنوز ماهیت اهداف مشخص نیست
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20759
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20759_1779742976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره :
+
+احتمالا توافق ایران و آمریکا فردا اعلام بشه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بنیامین نتانیاهو :
+
+دستور دارم حملات به لبنان برای نابودی حزب الله تشدید و قوی تر شود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقد اتفاقی شبی که قرار بود فرداش نتا وصل شه صدای انفجار اومد
+
+الان فردا میان میگن شرایط جنگیه‌ رفع محدودیت اینترنت فعلا کنسل
+</div>
+
+## alonews — post 122671
+
+<div align="center">
+  <a href="telegram/content/alonews_122671_1779742976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دودی که گفته میشه از سمت پایگاه هواییِ بندرعباس بلند شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 00:23
 ---
 
