@@ -7,6 +7,145 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 15:12
+---
+
+## mwarmonitor — post 9683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴« محمدباقر قالیباف، رئیس مجلس ایران، و عباس عراقچی، وزیر امور خارجه، امروز زودتر به دوحه رسیدند تا درباره تلاش‌های دیپلماتیک جاری برای پایان دادن به درگیری‌ها گفت‌وگو کنند؛ یک منبع مطلع از این سفر به فاکس نیوز گفته است.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9682
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9682_1779709353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ناو هواپیمابر فرانسوی «شارل دو گل (R91)» را در تصاویر ماهواره‌ای Sentinel-2، تاریخ ۲۴/۰۵/۲۰۲۶.
+
+این ناو در حال حاضر در دریای عرب در حال حرکت است و تنها توسط یک ناوشکن اسکورت می‌شود.
+
+📍مختصات: 16.83654, 55.92432
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9681
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9681_1779709354.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ایلان عمر، پیشنهاد مطرح‌شده‌ای را که می‌تواند به ممنوعیت حضور او در کنگره منجر شود، بی‌اهمیت و رد کرد. نیویورک پست
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9680
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9680_1779709354.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 موقع خوندن خبرها این خبر توجهم جلب کرد . 📌‏یک جوان ۱۹ ساله افغان در منطقه لپن میرابو در نزدیکی شهر مارسی فرانسه، به اتهام تجاوز جنسی بر بزها و گوسفندان بازداشت و به دادگاه معرفی شده است. 📌متهم در صورت اثبات جرم، با سه سال زندان و ۴۵ هزار یورو جریمه مواجه…
+</div>
+
+## Persian_Trend_Official — post 14932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام ایرانی به واشینگتن‌پست:
+
+▪️ بازگشایی تنگه هرمز به‌صورت مرحله‌ای انجام خواهد شد
+▪️ مرحله نخست شامل پاکسازی مین‌ها از تنگه، رفع محاصره آمریکا و آزادسازی ۱۲ میلیارد دلار از دارایی‌های بلوکه‌شده ایران است
+▪️ یادداشت تفاهم شامل توافق هسته‌ای نیست و فقط تعهد به آغاز مذاکرات درباره این پرونده در آینده را در بر می‌گیرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فاکس‌نیوز: قالیباف و عراقچی برای رایزنی درباره پایان جنگ وارد دوحه شدند
+
+▪️ فاکس‌نیوز گزارش داد محمدباقر قالیباف، رئیس مجلس ایران، و عباس عراقچی، وزیر خارجه ایران، امروز وارد دوحه شدند
+▪️ این سفر در چارچوب تلاش‌های دیپلماتیک جاری برای پایان‌دادن به درگیری‌ها و پیشبرد مذاکرات انجام شده است
+▪️ قطر یکی از اصلی‌ترین میانجی‌ها میان تهران و واشینگتن در مذاکرات اخیر محسوب می‌شود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157539
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157539" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ساعت ۱۴ با رادیوفردا، چهارم خرداد ۱۴۰۵‌
+
+@Radiofarda
+</div>
+
+## IranianMinds — post 20718
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20718_1779709355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 واشنگتن‌ پست:
+
+آمریکا و ایران به یک چارچوب اولیه برای تمدید آتش‌بس به مدت ۶۰ روز رسیده‌اند تا مذاکرات برای پایان جنگ ادامه پیدا کند.
+
+ایران قرار است طی ۳۰ روز تنگه هرمز را بازگشایی و مین‌های دریایی را پاکسازی کند
+
+آمریکا هم محاصره دریایی بنادر ایران را لغو خواهد کرد
+
+آزادسازی ۱۲ میلیارد دلار از دارایی‌های بلوکه‌شده ایران بخشی از توافق است
+
+ایران پس از دریافت این پول، پاکسازی مین‌ها را آغاز می‌کند
+تهران تعهد سطح بالایی درباره عدم دستیابی به سلاح هسته‌ای خواهد داد.
+
+هنوز هیچ توافق نهایی امضا نشده است!
+
+@IranianMinds
+</div>
+
+## alonews — post 122545
+
+<div align="center">
+  <a href="telegram/content/alonews_122545_1779709356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس مجلس ایران، قالیباف، و وزیر امور خارجه عراقچی امروز زودتر به دوحه، قطر، رسیدند برای گفتگو درباره تلاش‌های دیپلماتیک جاری برای پایان دادن به درگیری، طبق گزارش فاکس نیوز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122544
+
+<div align="center">
+  <a href="telegram/content/alonews_122544_1779709356.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد خوش‌چشم: علت منصرف‌شدن ترامپ از حملهٔ دوباره به ایران، ۲ عملیات پیش‌دستانهٔ منتسب به ایران بود نه درخواست عرب‌ها!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 15:02
 ---
 
