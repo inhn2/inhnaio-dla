@@ -7,6 +7,133 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 16:32
+---
+
+## VahidOOnLine — post 242123
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242123_1779714179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، اعلام کرد عصر دوشنبه، ساکنان محلی در جزیره قشم صدای فعالیت پدافند را گزارش کرده‌اند.
+بنا بر این خبر، ماهیت این صداها مشخص نیست و هنوز هیچ‌یک از نهادهای رسمی درباره علت وقوع این صداها اظهارنظر نکرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- دوشنبه ۴ خرداد:
+
+🔹در ممسنی جو به شدت امنیتی است و تمام کسانی که در چهلم جاویدنامان حماسه آفریدند را دستگیر می‌کنند.
+
+🔹در کاشان سر هر چهارراه و میدان چادر زده‌اند و به زن‌ها و بچه‌ها تیراندازی و کار با تفنگ آموزش می‌دهند؛ از بچه‌ای که باید به کلی از این مسائل دور باشد سوءاستفاده ابزاری می‌کنند.
+
+🔹کسی بیشتر از ما دانش‌آموزان پایه‌های یازدهم و دوازدهم استرس و ترس ندارد؛ مایی که قرار است بعد از ۸۰ روز سختی و مشقت و کیفیت تدریس پایین امتحان نهایی و بعدش کنکور بدهیم.
+
+🔹ما میدان خراسان تهران کنار پاساژ خراسان قهوه‌خونه داریم الان با این وضعیت گرانی چطور کار کنیم؟ تنباکو کیلویی ۵ میلیون و ذغال کیلویی ۴۰۰ هزار تومان است.
+
+🔹من بیماری خودایمنی دارم و به‌خاطر پیدا نکردن یک قرص ساده کارم به بستری در بیمارستان کشیده.
+
+🔹سیستان و بلوچستان اصلا کارت آزاد بنزین در این ۱۰ سال نداشته و خیلی‌ها ماشین‌هایشان را در نیمه دوم ماه استفاده نمی‌کنند.
+
+🔹رفته بودم سوپرمارکت خرید کنم، متصدی فروشگاه گفت محصولات لبنی دوباره ۳۰ درصد افزایش یافته، آخرین تغییر قیمت ۱۰ روز پیش بود!
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : نقشه عالی پیش میره 😃💪🏾 مثل بنز داره کار میکنه … از این جدیدایه فابریک صفر کارخونه برند نیو
+</div>
+
+## mwarmonitor — post 9686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مذاکرات با جمهوری اسلامی ایران به خوبی در حال پیشرفت است! این یا یک «توافق بزرگ» برای همه خواهد بود، یا هیچ توافقی در کار نخواهد بود — بازگشت به جبهه جنگ و شلیک، اما بزرگتر و قوی‌تر از هر زمان دیگری — و هیچ‌کس این را نمی‌خواهد! من در طول گفتگوهایم در روز شنبه…
+</div>
+
+## FoxNewsTwitter — post 342200
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342200_1779714179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The DOJ is removing years of online records about Capitol riot prosecutions, saying the case pages were “partisan propaganda” tied to the Biden-era Justice Department.
+
+The erased releases tracked hundreds of criminal cases stemming from the 2021 Capitol breach, including convictions for violent assaults on police officers.
+
+At the same time, the administration is opening a $1.776 billion fund for people who claim they were unfairly investigated or prosecuted — and officials haven’t ruled out compensation for convicted Jan. 6 rioters.
+</div>
+
+## FoxNewsTwitter — post 342199
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump announcing that he linked an expansion of the Abraham Accords to his ongoing negotiations for an Iran peace deal:
+
+“During my discussions on Saturday... I stated that, after all the work done by the United States to try and pull this very complex puzzle together, it should be mandatory that all of these Countries, at a minimum, simultaneously, sign onto the Abraham Accords. Those Countries discussed are Saudi Arabia, The United Arab Emirates (already a Member!), Qatar, Pakistan, Türkiye, Egypt, Jordan, and Bahrain (already a Member!).”
+
+“Most should be ready, willing, and able to make this Settlement with Iran a far more Historic Event than it would, otherwise, be... If Iran signs its Agreement with me, as President of the United States of America, it would be an Honor to have them also be part of this unparalleled World Coalition.”
+</div>
+
+## IranIntlTV — post 338924
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338924_1779714180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، اعلام کرد عصر دوشنبه، ساکنان محلی در جزیره قشم صدای فعالیت پدافند را گزارش کرده‌اند.
+بنا بر این خبر، ماهیت این صداها مشخص نیست و هنوز هیچ‌یک از نهادهای رسمی درباره علت وقوع این صداها اظهارنظر نکرده‌اند.
+https://iranintl.com/202605253102
+</div>
+
+## IranIntlTV — post 338923
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338923_1779714181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گمانه‌زنی‌ها درباره احتمال ازسرگیری مذاکرات میان جمهوری اسلامی و آمریکا، رسانه‌های اجتماعی فارسی‌زبان را به‌شدت تحت تاثیر قرار داده است.
+
+عادله بورنگ، عضو تحریریه ایران‌اینترنشنال، برخی از واکنش‌های کاربران را بررسی می‌کند
+@iranintltv
+</div>
+
+## IranIntlTV — post 338922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- دوشنبه ۴ خرداد:
+
+🔹در ممسنی جو به شدت امنیتی است و تمام کسانی که در چهلم جاویدنامان حماسه آفریدند را دستگیر می‌کنند.
+
+🔹در کاشان سر هر چهارراه و میدان چادر زده‌اند و به زن‌ها و بچه‌ها تیراندازی و کار با تفنگ آموزش می‌دهند؛ از بچه‌ای که باید به کلی از این مسائل دور باشد سوءاستفاده ابزاری می‌کنند.
+
+🔹کسی بیشتر از ما دانش‌آموزان پایه‌های یازدهم و دوازدهم استرس و ترس ندارد؛ مایی که قرار است بعد از ۸۰ روز سختی و مشقت و کیفیت تدریس پایین امتحان نهایی و بعدش کنکور بدهیم.
+
+🔹ما میدان خراسان تهران کنار پاساژ خراسان قهوه‌خونه داریم الان با این وضعیت گرانی چطور کار کنیم؟ تنباکو کیلویی ۵ میلیون و ذغال کیلویی ۴۰۰ هزار تومان است.
+
+🔹من بیماری خودایمنی دارم و به‌خاطر پیدا نکردن یک قرص ساده کارم به بستری در بیمارستان کشیده.
+
+🔹سیستان و بلوچستان اصلا کارت آزاد بنزین در این ۱۰ سال نداشته و خیلی‌ها ماشین‌هایشان را در نیمه دوم ماه استفاده نمی‌کنند.
+
+🔹رفته بودم سوپرمارکت خرید کنم، متصدی فروشگاه گفت محصولات لبنی دوباره ۳۰ درصد افزایش یافته، آخرین تغییر قیمت ۱۰ روز پیش بود!
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 16:22
 ---
 
