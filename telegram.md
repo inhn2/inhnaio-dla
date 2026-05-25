@@ -7,6 +7,325 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 13:52
+---
+
+## VahidOOnLine — post 242105
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242105_1779704579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان هم‌زمان با فستیوال موسیقی گوتیک‌ویو در شهر لایپزیگ علیه جمهوری اسلامی راهپیمایی نمادین برگزار کردند.
+این تجمع با پوشیدن لباس مشکی، پخش موسیقی نویز و نصب نماد «وای‌فای خاموش» بر دهان شرکت‌کنندگان همراه بود؛ حرکتی اعتراضی برای جلب توجه افکار عمومی به کشتارهای رخ‌داده در ایران و بی‌توجهی سیاستمداران اروپایی.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242104
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242104_1779704582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز دوشنبه چهارم خرداد در پاسخ به پرسش‌های خبرنگاران درباره اعمال هزینه عبور از تنگه هرمز گفت: «کشتی‌ها عوارضی نمی‌پردازند. ناوبری و حفاظت از محیط زیست در تنگه هرمز هزینه‌هایی دارد و ما با کشور عمان در حال بررسی طرحی برای تامین این هزینه‌ها هستیم.»
+
+این اظهارات در حالی بیان می‌شود که عبور و مرور کشتی‌های باری و نفتکش‌ها در از تنگه هرمز، محل گذر یک پنجم انرژی جهان از زمان آغاز جنگ آمریکا و اسرائیل با جمهوری اسلامی عملا متوقف شده است. مساله بازگشایی تنگه هرمز یکی از موضوعات مذاکرات جاری میان تهران و واشنگتن است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث : «من به تمام دموکرات‌ها، جمهوری‌خواه‌های ظاهری (RINOها) و احمق‌هایی می‌خندم که هیچ اطلاعی درباره توافق احتمالی‌ای که من با ایران در حال انجامش هستم ندارند؛ مسائلی که حتی هنوز وارد مرحله مذاکره هم نشده‌اند.
+
+افراد ضعیف و بی‌اثری مثل سناتور شکست‌خورده تام تیلیس که به‌زودی از قدرت کنار می‌رود یا بیل کسیدی که تازه یک شکست سنگین در انتخابات مقدماتی خورده، یا نماینده واقعاً افتضاح، توماس مَسی؛ آدمی کاملاً کثیف که بعد از خیانت بزرگ به حزبش (و کشورش!) با اختلاف سنگین از یک میهن‌پرست واقعی آمریکایی که مورد حمایت «ترامپ» بود شکست خورد؛ و تقریباً تمام دموکرات‌ها؛ کسانی که کاملاً راهشان را گم کرده‌اند، مدام از سیاست‌های بد و نامزدهای حتی بدتر حمایت می‌کنند، اما همزمان از تک‌تک پیروزی‌های فوق‌العاده من انتقاد دارند.
+
+این افراد بهتر است به خانه بروند و استراحت کنند؛ چون جز ایجاد تفرقه و شکست، کاری انجام نمی‌دهند. به زبان ساده: آن‌ها بازنده‌اند!
+
+توافق با ایران یا یک توافق بزرگ و معنادار خواهد بود، یا اصلاً توافقی در کار نخواهد بود.
+این توافق دقیقاً نقطه مقابل فاجعه برجام (JCPOA) خواهد بود؛ توافقی که توسط دولت شکست‌خورده اوباما مذاکره شد و مسیری مستقیم و آشکار برای دستیابی ایران به سلاح هسته‌ای ایجاد می‌کرد.
+نه، من چنین توافق‌هایی انجام نمی‌دهم!
+@withyashar
+</div>
+
+## mwarmonitor — post 9671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸شبکه ۱۲ اسرائیل: از صبح تاکنون ۳ پهپاد حزب‌الله در داخل اسرائیل منفجر شده‌اند که یکی از آن‌ها به یک ساختمان در منطقه «مطله» اصابت کرده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91444
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91444_1779704583.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ در تروث سوشال:
+
+من میخندم به همه‌ی دموکرات‌های احمق و رینوها (جمهوری‌خواهان بدلی) و ابلهانی که هیچ‌چیز درباره‌ی توافق احتمالی من با ایران نمیدانند؛ چیزهایی که حتی هنوز مورد مذاکره هم قرار نگرفته‌اند. افراد ضعیف و بی‌خاصیتی مثل سناتور شکست‌خورده تام تیلیس (که به‌زودی از کار برکنار میشود!)، بیل کسیدی که همین چندهفته پیش یک شکست سنگین رو توی انتخابات درون‌حزبی تجربه کرد، و عضو واقعاً بد کنگره توماس مسی؛ یک آدم پست و رذل به تمام‌معنا که بعد از نشان دادن بی‌وفایی شدید به حزبش (و کشورش!)، در یک انتخابات قاطع (با اختلاف فاحش) به یک میهن‌پرست بزرگ آمریکایی (مورد حمایت "ترامپ") باخت. و تقریباً همه‌ی دموکرات‌های احمق، افرادی که کاملاً راه خودشون رو گم کرده‌اند، مدام از سیاست‌های بد و حتی نامزدهای بدتر حمایت میکنند، اما به‌طور مستمر از تک‌تک بردهای شگفت‌انگیز من انتقاد میکنند. این افراد باید بروند خانه و استراحت کنند، اونا کاری جز ایجاد تفرقه و باخت انجام نمیدهند. به عبارت دیگر، اونا بازنده هستند!
+
+توافق با ایران یا یک توافق بزرگ و پرمحتوا خواهد بود، یا اصلاً توافقی در کار نخواهد بود. این توافق دقیقاً نقطه‌ی مقابل فاجعه‌ی برجام خواهد بود که توسط دولت شکست‌خورده‌ی اوباما مذاکره شد؛ توافقی که یک مسیر مستقیم و باز واسه رسیدن به سلاح هسته‌ای جلو پای ایران گذاشت. نخیر، من از این مدل توافق‌ها نمیکنم!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338900
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338900_1779704583.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان هم‌زمان با فستیوال موسیقی گوتیک‌ویو در شهر لایپزیگ علیه جمهوری اسلامی راهپیمایی نمادین برگزار کردند.
+این تجمع با پوشیدن لباس مشکی، پخش موسیقی نویز و نصب نماد «وای‌فای خاموش» بر دهان شرکت‌کنندگان همراه بود؛ حرکتی اعتراضی برای جلب توجه افکار عمومی به کشتارهای رخ‌داده در ایران و بی‌توجهی سیاستمداران اروپایی.
+</div>
+
+## Shin_Persian — post 6214
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6214_1779704586.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Mon, 25 May 2026 10:15:32 UTC President Trump @POTUS: "I laugh at all of the Dumocrats, RINOS, and Fools who know nothing about the potential deal I am making with Iran, things that haven’t even been negotiated yet, weak and ineffective…
+</div>
+
+## Shin_Persian — post 6213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 25 May 2026 10:15:32 UTC
+
+President Trump @POTUS:
+"I laugh at all of the Dumocrats, RINOS, and Fools who know nothing about the potential deal I am making with Iran, things that haven’t even been negotiated yet, weak and ineffective people like failed Senator Thom Tillis (Soon out of office!), Bill Cassidy, who just suffered a massive Primary loss, really bad Congressman Thomas Massie, a major sleazebag who lost in a landslide to a great American Patriot (Endorsed by “TRUMP”) after showing tremendous disloyalty to his Party (and Country!), and almost all Dumocrats, people that have totally lost their way, constantly supporting bad policy and even worse candidates, but are constantly critical of each and every fantastic win I have. These people should go home and rest, they do nothing but create division and loss. In other words, they are losers! The deal with Iran will either be a great and meaningful one, or there will be no deal. It will be the exact opposite of the JCPOA disaster negotiated by the failed Obama Administration, which was a direct and open path to a Nuclear Weapon for Iran. No, I don’t do deals like that! President DJT"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«من به تمام دموکرات‌های نادان (Dumocrats)، راینوها (RINOs - جمهوری‌خواهان اسمی) و احمق‌هایی که هیچ‌چیز درباره توافق احتمالی من با ایران نمی‌دانند می‌خندم؛ مواردی که هنوز حتی درباره آن‌ها مذاکره هم نشده است. افراد ضعیف و بی‌کفایتی مانند سناتور شکست‌خورده تام تیلیس (که به‌زودی از سمتش برکنار می‌شود!)، بیل کسیدی که همین اواخر شکست سنگینی در انتخابات مقدماتی متحمل شد، کنگره‌منِ واقعاً بد توماس مسی، یک رذل تمام‌عیار که پس از نشان دادن بی‌لیاقتی و بی‌وفایی عظیم به حزب (و کشورش!) با شکستی فاحش در برابر یک میهن‌پرست بزرگ آمریکایی (مورد حمایت "ترامپ") شکست خورد، و تقریباً تمام دموکرات‌های نادان؛ افرادی که کاملاً راهشان را گم کرده‌اند، مدام از سیاست‌های بد و نامزدهای حتی بدتر حمایت می‌کنند، اما به‌طور مداوم از تک‌تک پیروزی‌های شگفت‌انگیز من انتقاد می‌کنند. این افراد باید به خانه بروند و استراحت کنند، آن‌ها کاری جز ایجاد تفرقه و شکست انجام نمی‎دهند. به عبارت دیگر، آن‌ها بازنده هستند! توافق با ایران یا توافقی بزرگ و معنادار خواهد بود یا اصلاً توافقی در کار نخواهد بود. این دقیقاً برعکس فاجعه برجام (JCPOA) خواهد بود که توسط دولت شکست‌خورده اوباما مذاکره شد؛ توافقی که مسیری مستقیم و باز برای رسیدن ایران به سلاح هسته‌ای بود. خیر، من چنین توافق‌هایی نمی‌کنم! پرزیدنت دی‌جی‌تی»
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14925
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14925_1779704587.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داکتر مرندی، تحلیلگر سیاسی: ظاهرا قرار بر این است قطری ها بخشی از پول را برای ما تامین و بعد از آمریکا دریافت کنند.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14924
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14924_1779704590.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروفسور خوش‌چشم، تحلیلگر مسائل راهبردی: علت منصرف‌شدن ترامپ از حملهٔ دوباره به ایران، ۲ عملیات پیش‌دستانهٔ منتسب به ایران بود نه درخواست عرب‌ها !!! 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+من به همه دموکرات ها، رینوس ها و احمق هایی که هیچ چیز در مورد معامله احتمالی من با ایران نمی دانند می خندم.
+
+توافق با ایران یا توافقی بزرگ و معنادار خواهد بود یا توافقی وجود نخواهد داشت.
+
+این دقیقا برعکس فاجعه برجام خواهد بود که توسط دولت شکست خورده اوباما مذاکره شد، که راهی مستقیم و باز برای دستیابی به سلاح هسته ای برای ایران بود.
+
+نه، من چنین معامله ای انجام نمی دهم!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282012
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282012_1779704592.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سخنگوی وزارت خارجه ایران در واکنش به اظهارات مقام‌های آمریکایی که از پیشرفت در مذاکرات می‌گویند، گفت که در برخی موضوعات دو طرف به جمع‌بندی رسیده‌اند اما نمی‌توان گفت که توافق قریب‌الوقوع است.
+
+اسماعیل بقایی مواضع ضد‌و‌نقیض مقام‌های آمریکا و سابقه حمله این کشور در میانه مذاکره را ازجمله دلایل این امر عنوان کرد.
+
+این در حالی است که مارکو روبیو، وزیر خارجه آمریکا، گفته است که توافق میان تهران و واشنگتن «هنوز در حال پیشرفت است». دونالد ترامپ هم دیروز از نزدیک شدن به توافق گفته بود اما بعد تاکید کرد که عجله‌ای برای رسیدن به توافق ندارد.
+
+📸GettyImages
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390130
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر موقع شک کردی رب گوجه فرنگی کافیه برای ماکارونی ، دو قاشق دیگه رب بریز.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390129
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390129_1779704593.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پخش اذان مغرب مسلمانان از بلندگو در ميدان شلوغ دانداس تورنتو كانادا 🇨🇦
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390128
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390128_1779704595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی که همزمان سخنگوی تیم مذاکره‌کننده با آمریکاست، صبح امروز در نشست خبری گفت: «کسی نمی‌تواند ادعا کند که به توافق نزدیک شده‌ایم. تغییرات مکرر مواضع مقامات آمریکایی هر گفت‌گویی را دچار اشکال می‌کند. در حوزه هسته‌ای هیچ مذاکره‌ای نمی‌کنیم و هر اقدام خصمانه‌ای نیز با واکنش شدید ایران مواجه خواهد شد. همچنین بحثی در مورد جزئیات مدیریت تنگه هرمز نداریم و اینکه تنگه به چه شیوه‌ای مدیریت شود، مربوط به دولت‌های ساحلی آن است.»
+
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی گفت به دلیل مخالفت دولت آمریکا با صدور ویزا، عباس عراقچی موفق نشد تا برای حضور در جلسه شورای امنیت سازمان ملل به نیویورک سفر کند.
+﻿
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390127
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390127_1779704599.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه فقط کافیه بادبان ها رو بکشی
+
+
+⚫️100 هزار تومان تخفیف خرید اول 
+🎁
+
+⚫️پایین ترین قیمت گیگی 180 هزار تومان
+🌐 
+
+⚫️پورسانت %10 دائمی برای هر معرفی
+💼
+
+با بادبان، میتونی یه اتصال سریع، پایدار و امن
+همراه با پشتیبانی ۲۴ ساعته داشته باشی
+🚀
+
+
+🛒کد تخفیف: badban4k
+
+بادبان راهتو باز می‌کنه
+⛵️
+R4
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 390126
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390126_1779704600.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: تو جلسهٔ ستاد ویژهٔ ساماندهی فضای مجازی
+
+اتصال مجدد اینترنت بین‌الملل به رای گذاشته شد که با 9 رای موافق و 3 رای مخالف تصویب و به پزشکیان ارسال شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122527
+
+<div align="center">
+  <a href="telegram/content/alonews_122527_1779704601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امنیت ملی اسرائیل، ایتامار بن-گویر: نتانیاهو باید دستش را محکم روی میز ترامپ بکوبد و به او بگوید که ما به جنگ بازمی‌گردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122526
+
+<div align="center">
+  <a href="telegram/content/alonews_122526_1779704601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید ترامپ درباره ایران
+
+
+🔴ترامپ : به همه دموکرات‌های احمق، جمهوری‌خواهانِ فقط به‌نام، و ابلهانی که هیچ‌چیز از معامله‌ای که با ایران دارم انجام می‌دهم نمی‌دانند، می‌خندم.
+
+
+🔴معامله با ایران یا بزرگ و پرمعنا خواهد بود، یا اصلاً معامله‌ای در کار نخواهد بود.
+
+
+🔴این معامله دقیقاً نقطه‌ی مقابل فاجعه‌ی برجام خواهد بود که توسط دولت شکست‌خورده اوباما مذاکره شد؛ برجام مسیری مستقیم و آشکار به سوی سلاح هسته‌ای برای ایران بود.
+
+
+🔴نه، من اهل چنین معامله‌هایی نیستم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122525
+
+<div align="center">
+  <a href="telegram/content/alonews_122525_1779704601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی مجتمع گاز پارس جنوبی:
+صبح امروز در عملیات آواربرداری پالایشگاه ششم پارس جنوبی، یک حادثه رخ داد که ۶ نفر از کارکنان شرکت پیمانکار مصدوم شدند.
+
+
+🔴۳ نفر سرپایی مداوا و ۳ نفر دیگر برای بررسی‌های بیشتر به بیمارستان عسلویه منتقل شدند.
+
+
+🔴علت حادثه در دست بررسی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122524
+
+<div align="center">
+  <a href="telegram/content/alonews_122524_1779704601.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رشد ۸۳ هزار واحدی شاخص بورس پس از پایان معاملات امروز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 13:42
 ---
 
