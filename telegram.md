@@ -7,6 +7,161 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 22:03
+---
+
+## VahidOOnLine — post 242334
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242334_1779820398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد که طی شبانه‌روز گذشته ۲۵ فروند کشتی اعم از نفتکش، کانتینربر و سایر کشتی‌های تجاری پس از کسب مجوز از نیروی دریایی سپاه، از تنگه هرمز عبور کردند.
+
+سپاه افزود: کنترل هوشمند تنگه هرمز با اقتدار در حال انجام است و هرگونه تجاوز با ضربات کوبنده پاسخ داده خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242333
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242333_1779820399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه نت‌بلاکس در حساب خود در شبکه اجتماعی ایکس اعلام کرد اتصال اینترنت در ایران افزایش بیشتری یافته و به ۸۶ درصد رسیده است، شبکه‌های موبایل و بخش‌های دیگری از اینترنت نیز دوباره به اینترنت جهانی متصل شده‌اند.
+نت‌بلاکس افزود «فیلترنت» همچنان برقرار است اما امکان دور زدن آن وجود دارد. همچنین واتس‌اپ اکنون محدود شده و برای دسترسی به آن نیاز به ابزارهای دور زدن فیلتر است و برخی کاربران همچنان به اینترنت جهانی دسترسی ندارند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو از ترور هدفمند خبر داد :
+همین الان محمد عوده، از فرماندهان شاخه نظامی حماس و یکی از طراحان حمله ۷ اکتبر رو در غزه هدف قرار دادیم
+به حساب همه‌شون می‌رسیم
+@withyashar
+</div>
+
+## mwarmonitor — post 9763
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9763_1779820399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⁉️« چرا ایران در اوایل جنگ، بندر دُقم در عمان را هدف قرار داد.
+
+⭕️دلیلش این بود: چند روز قبل از آن، شناورهای نیروی دریایی آمریکا برای سوخت‌گیری و تأمین تدارکات در آنجا پهلو گرفته بودند.
+
+🛰تصاویر ماهواره‌ای زیر نشان می‌دهد که یک کشتی تدارکاتی USNS و یک ناوشکن از کلاس آرلی برک در همان اسکله‌ای حضور داشتند که بعداً مورد حمله قرار گرفت.
+
+🔸«عمان پایگاه لجستیکی عملیات تأمین مجدد نیروهای آمریکا در خلیج فارس بود. چندین بالگرد از دُقم و دیگر بنادر برای این منظور استفاده می‌کردند. پس از هدف قرار گرفتن بندر، این فعالیت‌ها متوقف شد و آمریکا عملیات ناوگان بازرگانی خود را به جیبوتی منتقل کرد.»
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 339142
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339142_1779820400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد که طی شبانه‌روز گذشته ۲۵ فروند کشتی اعم از نفتکش، کانتینربر و سایر کشتی‌های تجاری پس از کسب مجوز از نیروی دریایی سپاه، از تنگه هرمز عبور کردند.
+
+سپاه افزود: کنترل هوشمند تنگه هرمز با اقتدار در حال انجام است و هرگونه تجاوز با ضربات کوبنده پاسخ داده خواهد شد.
+https://iranintl.com/202605266414
+</div>
+
+## IranIntlTV — post 339141
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339141_1779820401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه نت‌بلاکس در حساب خود در شبکه اجتماعی ایکس اعلام کرد اتصال اینترنت در ایران افزایش بیشتری یافته و به ۸۶ درصد رسیده است، شبکه‌های موبایل و بخش‌های دیگری از اینترنت نیز دوباره به اینترنت جهانی متصل شده‌اند.
+نت‌بلاکس افزود «فیلترنت» همچنان برقرار است اما امکان دور زدن آن وجود دارد. همچنین واتس‌اپ اکنون محدود شده و برای دسترسی به آن نیاز به ابزارهای دور زدن فیلتر است و برخی کاربران همچنان به اینترنت جهانی دسترسی ندارند.
+https://iranintl.com/202605268926
+</div>
+
+## Persian_Trend_Official — post 15085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/TrPiEz5YpyQ?feature=share»
+</div>
+
+## Persian_Trend_Official — post 15084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/TrPiEz5YpyQ?feature=share
+</div>
+
+## IranianMinds — post 20836
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوش برگشتید عزیزان
+</div>
+
+## IranianMinds — post 20835
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20835" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول مخابرات
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## alonews — post 122903
+
+<div align="center">
+  <a href="telegram/content/alonews_122903_1779820401.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروی دریایی سپاه: کنترل هوشمند تنگهٔ هرمز با اقتدار درحال انجام است و هرگونه تجاوز با ضربات کوبنده پاسخ داده خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122902
+
+<div align="center">
+  <a href="telegram/content/alonews_122902_1779820402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 جی‌دی ونس: همه باید به تقلب اهمیت بدهند. همه باید به ریشه‌کن کردن تقلب اهمیت بدهند. همه باید به صرفه‌جویی در پول مالیات‌دهندگان آمریکایی اهمیت بدهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122901
+
+<div align="center">
+  <a href="telegram/content/alonews_122901_1779820403.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بیانیه مشترک نتانیاهو و کاتز: ارتش ،محمد عوده، فرمانده جدید القسام را در غزه هدف قرار داد و ترور کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 21:53
 ---
 
