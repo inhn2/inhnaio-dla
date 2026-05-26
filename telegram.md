@@ -7,6 +7,150 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 20:53
+---
+
+## VahidOOnLine — post 242316
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242316_1779816196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت معاینه شش‌ماهه خود را در مرکز پزشکی نظامی والتر رید به پایان رسانده و نتایج آن کاملا مطلوب بوده است. او از پزشکان و کارکنان این مرکز قدردانی کرد و گفت در حال بازگشت به کاخ سفید است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12588
+
+
+
+
+## FoxNewsTwitter — post 342270
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: Protesters clash with law enforcement officers outside an ICE facility in Newark, New Jersey, just a day after their initial demonstration turned chaotic.
+
+ICE agents in riot gear arrived Monday afternoon to clear protesters blocking Delaney Hall’s entrance over concerns about detainee treatment. Tensions escalated as protesters formed a human chain, threw objects, and agents used pepper spray while trying to move a military-style vehicle.
+
+Families of detainees began protesting this weekend over alleged poor conditions and inadequate medical care, with a larger organized group joining Monday.
+</div>
+
+## IranIntlTV — post 339128
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339128_1779816197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت معاینه شش‌ماهه خود را در مرکز پزشکی نظامی والتر رید به پایان رسانده و نتایج آن کاملا مطلوب بوده است. او از پزشکان و کارکنان این مرکز قدردانی کرد و گفت در حال بازگشت به کاخ سفید است.
+https://iranintl.com/202605260974
+</div>
+
+## Persian_Trend_Official — post 15083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️لایو یوتیوب امشب ساعت ۲۲ برگزار میشود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: ارتش اسرائیل با «نیروهای گسترده زمینی» در جنوب لبنان عملیات می‌کند
+
+🔸بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز سه‌شنبه ۵ خرداد گفت ارتش این کشور با «نیروهای گسترده بر روی زمین» در جنوب لبنان در حال عملیات است و «مناطق راهبردی» را در کنترل خود می‌گیرد.
+
+🔸این اظهارات، بر اساس بیانیه‌ای رسمی، در آغاز نشست کابینه امنیتی اسرائیل بیان شد.
+
+🔸سخنان نتانیاهو پس از آن مطرح می‌شود که ارتش اسرائیل عملیات زمینی خود در جنوب لبنان را به فراتر از خط مرزی‌ای گسترش داد که اسرائیل پس از آتش‌بس ۱۶ آوریل با حزب‌الله، چند کیلومتر در داخل خاک لبنان تعیین کرده بود.
+
+🔸بنابر گزارش‌ها، روز سه‌شنبه، پس از هشدار اسرائیل برای تخلیه، چندین حمله شهر نَبَطیه در جنوب لبنان را هدف قرار داد.
+
+🔸همزمان یک مقام نظامی اسرائیل تأیید کرد که عملیات زمینی این کشور به نقاط عمیق‌تری در خاک لبنان گسترش یافته است.
+
+🔸این حملات پس از آن انجام شد که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز دوشنبه به ارتش خود دستور داد حملات علیه حزب‌الله را برای «درهم کوبیدن» این گروه مورد حمایت ایران تشدید کند. همان روز در حمله‌ای در شرق لبنان دست‌کم ۱۱ نفر کشته شدند.
+
+🔸به نوشتۀ خبرگزاری فرانسه، در نبطیه پس از هشدار تخلیه، حملات هوایی آغاز شد و ستون‌های دود از چند نقطه در داخل شهر برخاست.
+
+🔸گزارش کامل را در وب‌سایت رادیوفردا بخوانید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‎⁨همراه اول عالی⁩.npvt
+</div>
+
+## Hranews — post 113183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با تفتیش منزل؛ محمود بهشتی به اداره اطلاعات احضار شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – امروز سه شنبه، منزل محمود بهشتی لنگرودی، فعال صنفی معلمان توسط ماموران اطلاعات سپاه مورد تفتیش قرار گرفت. ماموران برخی از لوازم شخصی و دیجیتال آقای بهشتی را ضبط کردند. همزمان با این رویداد، وی به اداره اطلاعات لنگرود #احضار شد.
+
+ادامه مطلب
+
+#محمود_بهشتی_لنگرودی
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122883
+
+<div align="center">
+  <img src="telegram/content/alonews_122883_1779816198.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فروشا وقتی می‌نويسن خوشحالیم که همتون وصل شدین❤️
+
+[@AloTweet]
+</div>
+
+## alonews — post 122882
+
+<div align="center">
+  <a href="telegram/content/alonews_122882_1779816198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای عبدالخالق عبدالله مشاور سابق بن زاید و از چهره‌های بانفوذ امارات: امارات گام‌هایی محتاطانه و حساب‌شده را برای کاهش تنش با ایران برداشته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122880
+
+<div align="center">
+  <a href="telegram/content/alonews_122880_1779816198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ساعتی پیش بورس آمریکا و بازار کریپتو به صورت غیرطبیعی با ریزش شدیدی رو به رو شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 20:43
 ---
 
