@@ -7,6 +7,167 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 17:03
+---
+
+## VahidOOnLine — post 242285
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242285_1779802436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دفتر بنیامین نتانیاهو روز سه‌شنبه پنجم خردادماه اعلام کرد نخست‌وزیر اسرائیل نشستی امنیتی را در مقر نظامی کریا در تل‌آویو با حضور یسرائیل کاتز، وزیر دفاع، و ایال زمیر، رئیس ستاد ارتش اسرائیل، برگزار کرده است.
+
+بر اساس بیانیه دفتر نخست‌وزیر اسرائیل، این نشست همزمان با ادامه گفتگوهای واشنگتن و تهران درباره توافق احتمالی برای پایان جنگ برگزار شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9742
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9742_1779802437.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📈 تأیید شد: داده‌های زنده نشان می‌دهد که در روز ۸۸، پس از ۲۰۹۳ ساعت قطع تقریباً کامل ارتباط با شبکه‌های بین‌المللی، بخشی از اتصال اینترنت در ایران به‌طور محدود بازسازی شده است؛ طولانی‌ترین قطع سراسری اینترنت در تاریخ مدرن. هنوز مشخص نیست که این بازگشت اتصال پایدار خواهد بود یا خیر. نت بلاکس
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342263
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342263_1779802438.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Mandatory Ebola screenings have expanded to Atlanta's International Airport.
+
+Travelers arriving from the Democratic Republic of Congo, Uganda and South Sudan are now required to undergo temperature checks and complete a health questionnaire after landing in Atlanta.
+
+If travelers pass the screening, they are cleared to leave the airport but will still be monitored for 21 days by a state health department at their final destination.
+
+This move comes as the current Ebola outbreak overseas has caused at least 220 deaths around the world.
+</div>
+
+## FarsiVOA — post 218704
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218704_1779802439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بامداد سه‌شنبه، پنجم خرداد ۱۴۰۵، یک قطار با مینی‌بوس مدرسه در شمال بلژیک برخورد کرد. در این حادثه چهار نفر از جمله دو دانش‌آموز کشته و پنج دانش‌آموز دیگر مصدوم شدند.
+
+به گزارش رسانه‌های محلی، هفت دانش‌آموز، یک همراه و راننده مینی‌بوس در زمان وقوع حادثه در محل تقاطع جاده و راه‌آهن بودند. دو سرنشین ۱۲ و ۱۵ ساله، راننده مینی‌بوس و یک همراه، قربانیان این تصادف بودند.
+
+ویدیو بی‌صدا است.
+</div>
+
+## DW_Farsi — post 125163
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125163_1779802442.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تسنیم: ایران پیگیر آزادسازی ۱۲ میلیارد دلار در شروع اعلام توافق است
+
+تسنیم در خبری اختصاصی به نقل از یک منبع آگاه از تیم مذاکره‌کننده جمهوری اسلامی نوشت که ایران پیگیر آزادسازی ۱۲ میلیارد دلار در شروع اعلام یادداشت تفاهم است.
+
+این خبرگزاری نزدیک به سپاه پاسداران می‌نویسد، این منبع گفته است: «طبق متن ۱۴ ماده‌ای یادداشت تفاهم، منابع بلوکه‌شده ایران باید در طول مذاکرات آزاد شود که این مبلغ ۲۴ میلیارد دلار برآورد شده است.»
+
+به گفته این منبع، جمهوری اسلامی تاکید دارد که نصف این مبلغ یعنی ۱۲ میلیارد دلار باید با شروع اعلام یادداشت تفاهم یا توافق در دسترس قرار گیرد و بقیه در طول ۶۰ روز منتقل شود.
+
+این منبع همچنین گفت که سفر محمدباقر قالیباف، رئیس تیم مذاکره‌کننده ایران به قطر هم "برای تفاهم درباره اجرایی‌سازی این مطالبه و نحوه دسترسی به ۱۲ میلیارد دلار در گام اول و رفع موانع بوده است".
+
+تسنیم به نقل از این منبع ادامه داد: «با توجه به تجربه تفاهم بر سر آزادسازی پول‌های ایران در کره جنوبی و قطر، تاکید بر این بود که مراحل اجرایی با دقت پیگیری شود تا این تجربه مجدد تکرار نشود.»
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لطفا از عبارت "اینترنت داره به حالت عادی برمیگرده" استفاده نکنید.
+
+ما هیچوقت اینترنت عادی نداشتیم.
+
+در بهترین حالت یه فیلترنت بوده با هزاران محدودیت و مشکل.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه مهاجرانی، سخنگوی دولت ایران در پاسخ به پرسش خبرنگاری درباره پلمب برخی اماکن به دلیل حجاب گفت: «رویکرد ما، رویکرد پذیرش همه مردم است. دولت چنین قراری ندارد و طبیعتا چنین کاری را بررسی می‌کنیم.» پس از آغاز جنگ آمریکا و اسرائیل با ایران، رسانه‌های نزدیک…
+</div>
+
+## BBCPersian — post 282110
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282110_1779802443.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه مهاجرانی، سخنگوی دولت ایران در پاسخ به پرسش خبرنگاری درباره پلمب برخی اماکن به دلیل حجاب گفت: «رویکرد ما، رویکرد پذیرش همه مردم است. دولت چنین قراری ندارد و طبیعتا چنین کاری را بررسی می‌کنیم.»
+پس از آغاز جنگ آمریکا و اسرائیل با ایران، رسانه‌های نزدیک به سپاه و حکومت تصاویر متعددی از زنان بدون روسری در تجمع‌های شبانه محکومیت جنگ و حمایت از حکومت منتشر کرده‌اند. از سوی دیگر، همچنان اماکنی از جمله کافه‌ها به دلیل رعایت نکردن حجاب اسلامی پلمب می‌شوند. رویکردهای متناقض حکومت ایران در موضوع حجاب در سال‌های اخیر بحث‌برانگیز بوده است.
+
+خانم مهاجرانی در بخش دیگری از نشست رسانه‌ای هفتگی که امروز پنجم خرداد برگزار شد، در پاسخ به پرسشی درباره تورم، کمبود دارو و مشکلات درمان گفت: «صد در صد تلاش دولت معطوف به معیشت مردم است ولی بدیهی است در شرایط جنگی و در کشوری که تحت سخت‌ترین و خشن‌ترین تحریم‌هاست این اتفاق می‌افتد.»
+</div>
+
+## alonews — post 122820
+
+<div align="center">
+  <a href="telegram/content/alonews_122820_1779802445.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم : ترامپ به بیمارستان اعزام شد 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122819
+
+<div align="center">
+  <a href="telegram/content/alonews_122819_1779802446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عارف: گام نخست دسترسی آزاد و ضابطه‌مند به فضای مجازی برداشته شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122818
+
+<div align="center">
+  <a href="telegram/content/alonews_122818_1779802446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صحنه‌هایی از معرکه، جنوب لبنان، پس از حمله اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122817
+
+<div align="center">
+  <a href="telegram/content/alonews_122817_1779802446.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تسنیم : ترامپ به بیمارستان اعزام شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 16:53
 ---
 
