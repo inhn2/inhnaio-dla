@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 05:12
+---
+
+## FarsiVOA — post 218667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️صدای موافقان و منتقدان کنگره آمریکا در سایه احتمال توافق با جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تنگه هرمز و بحران کمک‌های غذایی و تجارت افغانستان زیر فشار جنگ و گرانی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218665
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218665_1779759770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئيس جمهوری آمریکا با انتشار این گرافیک اقدام نظامی خود علیه جمهوری اسلامی را با سیاست باراک اوباما، رئیس جمهوری سابق آمریکا مقایسه کرد که در این تصویر فرستادن پول نقد است.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 05:02
 ---
 
