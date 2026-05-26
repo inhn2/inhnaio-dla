@@ -7,6 +7,43 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 03:02
+---
+
+## VahidOOnLine — post 242364
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242364_1779838360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار ویدیویی در تلگرام، از کشف و انهدام حدود ۱۱ کیلومتر تونل حماس در منطقه بیت‌حانون، در شرق «خط زرد» در شمال نوار غزه، خبر داد.
+در اطلاعیه ارتش اسرائیل آمده است این منطقه سال‌ها به‌عنوان یکی از پایگاه‌های اصلی تروریستی حماس عمل می‌کرد و یکی از اصلی‌ترین و پیچیده‌ترین مناطق نبرد بود که نیروهای اسرائیل در طول جنگ در آن عملیات انجام دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339176
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339176_1779838362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار ویدیویی در تلگرام، از کشف و انهدام حدود ۱۱ کیلومتر تونل حماس در منطقه بیت‌حانون، در شرق «خط زرد» در شمال نوار غزه، خبر داد.
+در اطلاعیه ارتش اسرائیل آمده است این منطقه سال‌ها به‌عنوان یکی از پایگاه‌های اصلی تروریستی حماس عمل می‌کرد و یکی از اصلی‌ترین و پیچیده‌ترین مناطق نبرد بود که نیروهای اسرائیل در طول جنگ در آن عملیات انجام دادند.
+</div>
+
+## FarsiVOA — post 218751
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218751_1779838365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تورم در اروپا سرسخت‌تر از پایان تنش‌ها؛ افزایش نرخ بهره حتی در صورت توافق با جمهوری اسلامی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 02:52
 ---
 
