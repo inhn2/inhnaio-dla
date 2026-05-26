@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 21:13
+---
+
+## VahidOOnLine — post 242320
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242320_1779817388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات ایران اعلام کرد که اینترنت بین‌الملل برای مشترکان این شرکت به طور کامل برقرار شده است.
+
+به گزارش سیتنا، این شرکت به مشترکان خود توصیه کرد که در صورت بروز اختلال در دسترسی به اینترنت، به راه‌اندازی مجدد مودم اقدام کنند.
+
+این در حالی است که فیلترینگ جمهوری اسلامی بر اینترنت، همچنان برقرار است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## DEJradio — post 4997
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4997_1779817388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+👑 شاهزاده رضا پهلوی: «با جهان یا بی‌جهان، با اروپا یا بی‌اروپا، با آلمان یا بی‌آلمان، مبارزه ما ادامه خواهد داشت. ما از پا نخواهیم نشست تا زمانی که کشورمان آزاد شود؛ تا زمانی که کرامت مردم‌مان بازگردانده شود؛ تا زمانی که عدالت اجرا شود.»
+
+برلین، ۳ اردیبهشت ۲۵۸۵/۱۴۰۵
+
+#شاهزاده_رضا_پهلوی
+#ایران_را_پس_میگیریم
+@DEJradio
+</div>
+
+## IranIntlTV — post 339132
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339132_1779817390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات ایران اعلام کرد که اینترنت بین‌الملل برای مشترکان این شرکت به طور کامل برقرار شده است.
+
+به گزارش سیتنا، این شرکت به مشترکان خود توصیه کرد که در صورت بروز اختلال در دسترسی به اینترنت، به راه‌اندازی مجدد مودم اقدام کنند.
+
+این در حالی است که فیلترینگ جمهوری اسلامی بر اینترنت، همچنان برقرار است.
+https://iranintl.com/202605265597
+</div>
+
+## IranIntlTV — post 339131
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339131_1779817391.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیرحسین ثابتی، نماینده تهران در مجلس، گفت برخی با روایت‌های نادرست، تصمیم‌گیری در جمهوری اسلامی را دیکتاتورمآبانه جلوه می‌دهند. او با رد این برداشت، تاکید کرد علی خامنه‌ای و مجتبی خامنه‌ای، رهبر کشته‌شده و رهبر جدید جمهوری اسلامی، دیکتاتور نیستند و تصمیم‌ آنها بر پایه خواست مردم است.
+
+پیش‌تر، مسعود پزشکیان گفته بود در جریان جنگ ۱۲ روزه با علی خامنه‌ای دیدار داشته و او درباره چگونگی انجام مذاکره توضیح داده و قبول کرده که مذاکره انجام شود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339130
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339130_1779817392.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی حملات آمریکا به مواضعی در جنوب ایران را نقض آتش‌بس خواند و سپاه پاسداران نیز تهدید به پاسخ قطعی کرد.
+
+گفت‌وگو با شهیر شهیدثالث، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## FarsiVOA — post 218726
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218726_1779817395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل تصاویری از شبکه مسیرهای زیرزمینی حماس در بیت حانون منتشر کرد که نیروهای تیپ شمالی و یگان ویژه مهندسی تحت فرماندهی لشگر ۲۵۲، بیش از ۱۱ کیلومتر از آن‌ها را شناسایی و منهدم کردند.
+
+بنابر بیانیه ارتش اسرائیل همچنین صدها زیرساخت تروریستی در سطح زمین نیز نابود شد.
+
+به گفته ارتش اسرائیل منطقه بیت حانون در شمال نوار غزه یکی از کانون‌های اصلی نبرد در جریان عملیات زمینی بود. «در طول جنگ در این منطقه سه کیلومتر دیگر از مسیرهای زیرزمینی نیز منهدم و تعداد زیادی تروریست نیز حذف شدند.»
+</div>
+
+## IranianMinds — post 20829
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20829" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول و مخابرات بقیه اینترنت ها هم تست کنید
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390261
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390261_1779817397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستانی که تازه وصل شدن این چالش تازه اومده، ببینید از دنیا عقب نمونید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390260
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390260_1779817400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ ۲۱ روز دیگه همزمان با شروع محرم:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در صورت برقراری اتصال اینترنت، اولین اقدام ضروری این است که سیستم‌عامل تمامی دستگاه‌ها و همچنین همه نرم‌افزارهای نصب‌شده را به آخرین نسخه به‌روزرسانی کنید.
+
+این موضوع را بسیار جدی بگیرید؛ در حال حاضر تهدیدات و آسیب‌پذیری‌های امنیتی گسترده‌ای وجود دارد و بدافزارها به‌طور قابل‌توجهی در شبکه اینترنت ایران در حال انتشار هستند.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از اخراج کارگران کارخانه زرین غزال شیراز/ از آغاز جنگ، ۴۷۰۰ کارگر در استان قزوین تعدیل شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – حدود ۵۰ تن از #کارگران کارخانه زرین‌غزال شیراز در حالی توسط کارفرما از محل کار خود اخراج شدند که شماری از آنها در آستانه بازنشستگی قرار داشته‌اند. از سوی دیگر، مدیرکل تعاون، کار و رفاه اجتماعی استان قزوین از #تعدیل و بیکار شدن ۴،۷۰۰ نفر از کارگران و نیروهای کار این استان طی جنگ اخیر خبر داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122886
+
+<div align="center">
+  <a href="telegram/content/alonews_122886_1779817400.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام ارشد اسرائیلی در گفتگو با کانال ۱۴: حمله به ایران پس از دریافت «پیام مشخصی» از ایالات متحده، در این مرحله از دستور کار خارج شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 21:04
 ---
 
