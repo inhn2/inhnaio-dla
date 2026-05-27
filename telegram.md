@@ -7,6 +7,163 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 11:52
+---
+
+## WithYashar — post 12636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : پروژه قهرمان سازی زرشکیان رو متوقف کنید !!! 😡
+@withyashar
+</div>
+
+## mwarmonitor — post 9788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بر اساس گزارش کانال ۱۲ ، وزرای اسرائیل در یک نشست امنیتی خواستار واکنشی سخت‌تر علیه حزب‌الله و لبنان شدند.
+
+🔸وزیر کوهن گفت اسرائیل نباید در حالی که حزب‌الله آتش‌بس را نقض می‌کند، خویشتنداری نشان دهد و تأکید کرد لبنان به‌عنوان یک کشور مستقل مسئول حملات از خاک خود است و باید بهای آن را بپردازد.
+
+🔸وزیر بن گویر نیز گفت لبنان وزرایی مرتبط با حزب‌الله دارد و هشدار داد اسرائیل باید «ضاحیه را با خاک یکسان کند» و غیرنظامیان را جابه‌جا کند.
+
+🔸در همین حال، وزیر دفاع اظهار داشت که «گرفتن/تصرف قلمرو» همان چیزی است که به حزب‌الله ضربه می‌زند.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91610
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=49.13.35.164&port=8443&secret=dd104462821249bd7ac519130220c25d09
+
+پروکسی مخصوص تلگرام
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://ddf083f5-7d82-4948-b8b2-985cec9c7fba@fl1bot-ws.headerip.com:80?path=%2F&security=none&encryption=none&host=fl1.mv5.ir&type=ws#PMTV%20NEWS%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود v2 سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5012
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5012_1779870158.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 با اتصال دوباره اینترنت ایران، منابع گزارش‌های تازه‌ای از جنگ ۴۰ روزه ارسال کرده‌اند. در ایام جنگ تعدادی از فرماندهان سـ.ـپاه و انتظامی شب‌ها در گورستان زرتشتیان قصرفیروزه در شرق تهران می‌خوابیدند. در همان دوران چهره‌های برجسته جامعه زرتشتی تلاش کردند مانع این کار شوند اما راه به جایی نبردند.
+
+پیش‌تر موارد زیادی از از استقرار فرماندهان در بیمارستان‌ها، مدارس، باشگاه‌های ورزشی و مساجد گزارش شده بود.
+
+#اینترنت #جنگ۴۰روزه
+@DEJradio
+</div>
+
+## DEJradio — post 5011
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5011_1779870159.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 بر اثر برخورد یک خودرو به ایست بازرسی بـ.ـسیج در شهر عقدا اردکان استان یزد حداقل یک نفر از نیروها کشته شده است.
+
+خبرگزاری فارس وابسته به سـ.ـپاه پاسداران گزارش داد محمد معراج نظری سرباز بسیـ.ـجی «در مسیر تأمین امنیت» کشته شد اما اشاره‌ای به دلیل آن نکرده است اما خبرگزاری صداوسیما به نقل از فرماندهی پادگان آموزشی «ولیعصر» اردکان نوشت نوشت نظری «چند روز پیش در حین انجام وظیفه بر اثر برخورد یک خودروی متواری به شدت مجروح و به کما رفته بود.»
+
+#بسیجی #IRGCterrorists
+@DEJradio
+</div>
+
+## FarsiVOA — post 218783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائیل از کشته شدن فرمانده تازه شاخه نظامی حماس در غزه خبر داد
+
+▪️ارتش اسرائیل و سازمان امنیت داخلی این کشور، شاباک، اعلام کردند محمد عوده، فرمانده تازه شاخه نظامی حماس در نوار غزه، در حمله هوایی سه‌شنبه شب در شمال غزه کشته شده است.
+
+▪️به گفته مقام‌های اسرائیلی، محمد عوده هفته گذشته و پس از کشته شدن عزالدین حداد، به این جایگاه رسیده بود.
+
+▪️ساعاتی پیش از تأیید رسمی کشته شدن عوده، بنیامین نتانیاهو در بیانیه‌ای اعلام کرده بود ارتش اسرائیل، محمد عوده را در غزه هدف قرار داده است.
+
+▪️در آن بیانیه، عوده «یکی از طراحان حمله هفتم اکتبر» معرفی شده و گفته شده بود او مسئول کشته، ربوده و زخمی شدن شماری از شهروندان اسرائیلی و نیروهای ارتش اسرائیل بوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/idf-confirm-hamas-new-military-chief-killed-in-gaza-strike/8154428.html
+</div>
+
+## Persian_Trend_Official — post 15115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/c/2818485288/592142
+
+چت روی 4 روزه تا امنیت شما حفظ بشه و حرفاتون ازبین بره تا خدایی نکرده در داخل ایران اگر نیروهای امنیتی به گوشی شما دسترسی پیدا کردن نتونن کامنتهاتون رو ببینن و خدایی نکرده براتون پرونده سازی بشه .
+اما حرف های ما که اینجا ثبته و کسی هم پاکش نمیکنه !
+</div>
+
+## Persian_Trend_Official — post 15114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا دقایقی دیگه یک لایو در مورد نامه نبویان به قالیباف و ذوالقدر میریم برای ثبت در تاریخ و بررسی شرایط توافق جدید !!!
+</div>
+
+## alonews — post 122995
+
+<div align="center">
+  <a href="telegram/content/alonews_122995_1779870159.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«مردم ایران از سلول انفرادی به بند عمومی منتقل شدند.»
+
+
+🤔اینترنت جهانی برنگشته
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122994
+
+<div align="center">
+  <a href="telegram/content/alonews_122994_1779870160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: بیش از ۲۰۰ فروند کشتی در یک هفته گذشته از تنگه هرمز عبور کرده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122993
+
+<div align="center">
+  <a href="telegram/content/alonews_122993_1779870160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست جدید کاخ سفید، : مامویت سادست؛ صلح از طریق قدرت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 11:42
 ---
 
