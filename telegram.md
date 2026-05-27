@@ -7,6 +7,351 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 19:42
+---
+
+## VahidOOnLine — post 242449
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242449_1779898377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با پی‌بی‌اس‌نیوز اعلام کرد که تهران در ازای واگذاری و تحویل اورانیوم با غنای بالا، هیچ امتیاز یا کاهش تحریمی دریافت نخواهد کرد و چنین توافقی شامل لغو تحریم‌ها نمی‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12697
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12697_1779898377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایرانی‌ها فکر می‌کنند من به‌خاطر انتخابات میان‌دوره‌ای جنگ را تمام می‌کنم اما من اهمیتی نمی‌دهم
+@withyashar
+</div>
+
+## WithYashar — post 12696
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12696_1779898378.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت بلاکس: به نظر روند بازگشایی اینترنت ایران متوقف شده و در حال اعمال محدودیت‌های بیشتر برای جلوگیری از دانلود و استفاده از VPNها هستند!
+
+کماکان هیچ اخباری مبنی بر اتصال کامل اینترنت دیتاسنترها وجود ندارد که مشخصاً برای جلوگیری از گسترش تانل‌ها و VPNها می‌باشد.
+میزان اختلالات در شبکه از دیروز بسیار بیشتر شده است، بسیاری از سرویس‌های گوگل و کلودفلر بسته شده اند و حتی قابلیت استفاده از گوگل پلی و اپ استور نیز وجود ندارد.
+@withyashar
+</div>
+
+## WithYashar — post 12695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار جان من دندونپزشکم، دو سال سرباز بودم، صبح‌ها تو کلینیک ارتش یه شهرستان دورافتاده کار می‌کردم، بعدظهر هم تا شب تو کلینیک خیریه کار می‌کردم، از نظر مالی هیچ سودی برام نداشت فقط دلم می‌خواست دوران سربازی یه کار مفیدی هم برا اقشار ضعیف انجام بدم واقعاً از دلو جون مایه میذاشتم
+اما اون دو سال، از آدمای قدرنشناس و پر توقع رفتارای زیادی دیدم که باعث شد بفهمم خیلی از هم‌وطنا وقتی برا خدمتت هزینه‌ای پرداخت نمی‌کنن قدر خودت و کارتو نمی‌دونن انگار وظیفت بوده بشون خدمت کنی
+همین تجربه‌ باعث شد دیگه سمت خیریه نرم
+خیلی از مردم ما واقعا قدرنشناسن
+وقت و انرژیتو بدون سود و فقط از روی عشق به کشورت صرف کاری می‌کنی بعد یه عده‌ پیدا میشن که برن رو مخت و پشیمونت کنن
+</div>
+
+## mwarmonitor — post 9826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایرانی‌ها فکر می‌کنند من به خاطر انتخابات میان‌دوره‌ای جنگ را پایان می‌دهم، اما من به این موضوع اهمیتی نمی‌دهم.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342306
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342306_1779898379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump holds Cabinet meeting amid Iran negotiations https://twitter.com/i/broadcasts/1yxBeePLPmnJN
+</div>
+
+## pm_afshaa — post 91663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایرانی‌ها فکر می‌کنند من به‌خاطر انتخابات میان‌دوره‌ای جنگ را تمام می‌کنم اما من اهمیتی نمی‌دهم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339266
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339266_1779898379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت ایران به‌طور نسبی برگشته و مردم ایران دیشب در «برنامه» توانستند صدای خود را به ایران برسانند. امشب هم، بدون این‌که موضوع مشخصی داشته باشیم، «برنامه» را در اختیار شما می‌گذاریم تا بیایید و هر حرفی را که دارید، با ایران در میان بگذارید؛ پس اگر امشب اینترنت دارید، روی خط بیایید.
+
+«برنامه» صدای شماست.
+ما شما را، بدون نوبت، مستقیم از ایران روی خط می‌آوریم.
+بیایید و روایت خود را برای همیشه ثبت کنید.
+تاریخ با صدای شما نوشته می‌شود.
+
+برای شرکت در برنامه، همین حالا در واتس‌اپ پیام بدهید:
+۰۰۴۴۷۵۲۲۱۱۰۱۱۰
+۰۰۴۴۷۵۴۴۱۱۰۱۱۰
+۰۰۴۴۷۵۱۱۱۰۲۵۵۳
+«برنامه با کامبیز حسینی»
+«یک ایران صدای شما را می‌شنود»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339265
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339265_1779898380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با پی‌بی‌اس‌نیوز اعلام کرد که تهران در ازای واگذاری و تحویل اورانیوم با غنای بالا، هیچ امتیاز یا کاهش تحریمی دریافت نخواهد کرد و چنین توافقی شامل لغو تحریم‌ها نمی‌شود.
+https://iranintl.com/202605272170
+</div>
+
+## IranIntlTV — post 339264
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339264_1779898380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از ۸۸ روز قطعی، اینترنت به‌صورت محدود و فیلترشده دوباره در ایران در دسترس قرار گرفته، اتفاقی که بار دیگر ارتباط ایرانیان داخل و خارج کشور را برقرار کرده و شبکه‌های اجتماعی را پر از واکنش‌های تازه کرده است.
+
+عادله بورنگ، عضو تحریریه ایران‌اینترنشنال، به واکنش کاربران می‌پردازد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339263
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339263_1779898381.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی خامنه‌ای برای اولین بار اسرائیل را تهدید کرد که تا ۱۵ سال آینده نابود می‌شود. وزیر خارجه اسرائیل هم او را به سرنوشت علی خامنه‌ای ارجاع داد. او در حالی این تهدید را مطرح کرده که از بیم نفوذ موساد، از سه ماه پیش مخفی شده و جسد پدرش هنوز در یخچال است.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 339262
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339262_1779898383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید به دلیل شرایط موجود از جمله اعدام‌ها و مشکل معیشتی از وصل شدن اینترنت در ایران خوشحال نیست. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## Persian_Trend_Official — post 15137
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15137_1779898385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ
+
+«الان دارم به بعضی از این دموکرات‌ها انتقاد می‌کنم. واقعاً آدم‌های خنگی هستند.
+
+گفتم فکرش را بکنید. E را بردارید، U بگذارید. می‌شوند دوموکرات (احمق‌کرات)!»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15136
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15136_1779898386.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢حتی با تحویل اورانیوم‌ها هم خبری از لغو تحریم‌ها نیست!
+
+♦️ترامپ در گفتگو با شبکه پی‌بی‌اس اعلام کرد که ایران حتی در ازای دست کشیدن از اورانیوم‌های با غنای بالای خود، از کاهش تحریم‌ها بهره‌مند نخواهد شد!
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157617
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157617" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 در این کافه فردا به حواشی اتصال نصفه و نیمه و تدریجی اینترنت جهانی در ایران، حرف‌های پزشکیان در مورد وفاق، سریال تنگه وحشت، زندگی و آثار باب مارلی، پیام جدید منسوب به مجتبی‌ خامنه‌ای و رابطه حسام نواب صفوی و آیزنهاور می‌پردازیم.
+
+🔸 برای تماس با ما می‌توانید به شناسه کافه فردا در تلگرام صوت و متن بفرستید.
+
+📻 کافه فردا
+</div>
+
+## Dirty_Kids — post 390329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اوایل جنگ با اسرائیل یه عرزشی توییت زد: آخ آخ چه سگ کشی ای راه بندازیم
+
+و اما در جریان جنگ خودش توسط اسرائیل ترور شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 علیرضا جی‌جی، رپری که به تازگی اومده ایران :
+
+واقعا برام عجیبه که جوون‌ها چطور ابی، داریوش، گوگوش و... رو گوش میکنن!
+
+من اصلا نمی‌فهمم چی‌میگن، مثلا پوستِ شیر ابی؛ چی میگه اصلا؟
+پاپ‌خون‌های ایرانی چون خیلی وقته ایران نیومدن، هنوز تو ادبیات 50 سال پیش گیر کردن.
+من نمیذارم بچم اینارو گوش بده چون مخش رو شست و شو میدن.
+
+آهنگ‌هاشون خیلی سبک و چرت پرته..
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390327
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390327_1779898387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بادبان از 100,000 عضو گذشت!
+🎉
+
+با بازگشت اینترنت درحال آماده سازی زیرساخت بادبان برای سرویس دهی برای شرایط نرمال و خروج از سرویس دهی اضطراری هستیم با نرمال شدن شرایط قیمت های کاهشی خواهد بود تا اتمام این فرایند کاربران عزیز میتونن از سرویس های اضطراری استفاده کنن
+🚀
+
+
+🛒به زودی در ربات سرویس های نرمال با قیمت هر گیگ 10 هزار تومان برای فروش فعال خواهند شد
+🏷️
+
+
+🎁 کد تخفیف خرید اول دوباره ریست شد و همه میتونن ازش استفاده کنن:
+BadBanOFF
+
+
+💸 با این کد، 50 هزار تومان تخفیف روی اولین خریدت بگیر!
+
+
+🔥و مهم‌تر از همه...
+سیستم معرفی بادبان فعال‌تر از همیشه‌ست!
+از تمام خریدهای کاربرانی که معرفی میکنی، 10% خریدشون رو پورسانت دائمی دریافت کن و موجودی کیف پولت رو افزایش بده 
+💼
+
+وقتی بادبان داری،
+هیچ بادی مانع نیست… حتی وقتی اینترنت ملیه
+⛵️
+
+
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 390326
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390326_1779898387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان،
+
+شیر معلوم‌الحال خدا در تروث‌سوشال پستی منتشر کرده که گزارشیه از روزنامه‌ی جروزالم‌پست اسرائیل در خصوص آزار و تعرض جنسی به زنان بازداشت‌شده‌ی جوان ایرانی در زندان‌های رژیم پدرقحبه‌ی روافض حرومزاده‌ست که در دوران آتش‌بس افزایش پیدا کرده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123094
+
+<div align="center">
+  <a href="telegram/content/alonews_123094_1779898388.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : الان داریم با رویکرد «اول آمریکا» جلو می‌ریم درباره ایران. یا باید با شرایط من کنار بیان، یا کار رو تموم می‌کنیم.
+
+
+🔴 می‌گن «صبر می‌کنیم تا انتخابات میان‌دوره‌ای». دیشب دیدید چی شد؟ اون فقط شروع ماجرا بود برای انتخابات!
+
+
+🔴هر کسی گفته من دارم کوتاه میام، اشتباه کرده
+
+
+🔴 الان به نظر میاد خودشون دنبال توافقن. فکر نمی‌کنم حق انتخاب زیادی داشته باشن
+
+
+🔴 اینترنتشون تازه دوباره وصل شده، اقتصادشون هم داغونه، تورم هم خیلی بالاست!
+
+🔴 شاید مجبور بشیم برگردیم و کار رو یک‌سره کنیم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123093
+
+<div align="center">
+  <a href="telegram/content/alonews_123093_1779898390.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران می‌خواهد توافقی منعقد کند و ما با آن توافق می‌کنیم یا به ماموریت پایان می‌دهیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123092
+
+<div align="center">
+  <a href="telegram/content/alonews_123092_1779898390.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : با وجود درگیری با ونزوئلا، کشوری که دیگه نیروی دریایی نداره
+
+
+🔴 نیروی هوایی نداره، و خیلی از آدم‌هایی که کشور رو به جاهای بد کشونده بودن کنار رفتن و دیگه خبری از رهبری قبلی نیست...
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123091
+
+<div align="center">
+  <a href="telegram/content/alonews_123091_1779898391.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تلگراف: ایران فقط در صورت آزادسازی ۲۴ میلیارد دلار از دارایی‌های مسدودشده‌اش، توافق با آمریکا را امضا می‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 19:33
 ---
 
