@@ -360,7 +360,7 @@ jobs:
           echo "========================================="
           echo " STEP 5: Creating ZIP archive"
           echo "========================================="
-          echo "We'll now package all downloaded files into a single split ZIP archive (45 MB parts)."
+          echo "We'll now package all downloaded files into a single split ZIP archive (85 MB parts)."
 
           RANDSTR=$(cat /dev/urandom | tr -dc 'a-z' | head -c 5)
           ZIPNAME="leeched-${RANDSTR}.zip"
@@ -369,7 +369,7 @@ jobs:
             file_count=$(ls leecher-content/* | wc -l)
             echo "→ Found $file_count file(s) to zip."
             cd leecher-content
-            zip -j -s 45m -r "../leecher/${ZIPNAME}" *
+            zip -j -s 85m -r "../leecher/${ZIPNAME}" *
             cd ..
             echo "✓ Archive created: ${ZIPNAME}"
           else
