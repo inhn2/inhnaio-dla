@@ -7,6 +7,62 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 06:13
+---
+
+## VahidOnline — post 75763
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از #امیدیه در خوزستان پیام‌ها و تصاویری دریافت می‌کنم درباره اینکه حدود ساعت ۵:۵۰ موشکی شلیک شده و لانچری هدف گرفته شده.
+گویا هم‌زمان با آژیر کویت
+
+📡 @VahidOnline
+</div>
+
+## alonews — post 123190
+
+<div align="center">
+  <a href="telegram/content/alonews_123190_1779936183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری CBS: "یک سایت نظامی در خاک ایران هدف حمله قرار گرفت."
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123189
+
+<div align="center">
+  <a href="telegram/content/alonews_123189_1779936183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک مقام آمریکایی به سی‌بی‌اس گفت ایالات متحده حملات جدیدی را علیه یک سایت نظامی ایران انجام داده ولی آتش‌بس همچنان برقرار است.
+
+
+🔴یک مقام آمریکایی در گفت‌وگو با رویترز از حملات جدید آمریکا به یک سایت نظامی در ایران خبر داد و گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123188
+
+<div align="center">
+  <a href="telegram/content/alonews_123188_1779936183.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع آگاه نظامی به خبرگزاری تسنیم گفت: ساعاتی پیش یک نفتکش آمریکایی با خاموش کردن سیستم راداری خود قصد عبور از تنگه هرمز را داشت که با اقدام سریع و قاطع نیروی دریایی سپاه و شلیک به سمت آن، مجبور به توقف و بازگشت شد.
+
+
+🔴در مقابل، ارتش آمریکا به زمین سوخته‌ای در اطراف بندرعباس شلیک کرده‌اند که صدای انفجارها مربوط به این ماجرا بوده است؛ این شلیک هیچ خسارت جانی یا مالی به همراه نداشته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 06:02
 ---
 
