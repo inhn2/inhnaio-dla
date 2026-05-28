@@ -7,6 +7,41 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 03:53
+---
+
+## WithYashar — post 12768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام آمریکایی به شبکه CBS نیوز گفت : آتش‌بس با ایران پس از حملات امشب همچنان در حال اجرا در نظر گرفته می‌شود.
+@withyashar
+</div>
+
+## Persian_Trend_Official — post 15152
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15152_1779927789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهایی که از ترور علی عظمایی جانشین سردار تنگسیری دست به دست می‌شود برای اولین بار توسط منابع خبری نامعتبر و زرد منتشر شده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عزیزان کسی هست دامنه وایت رو کلادفلر داشته باشه پیام بده ( برای وصل کردن بچه ها میخوایم )
+
+@AmirrPower
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 03:43
 ---
 
